@@ -162,3 +162,18 @@ Ele sente ciúmes do parceiro ou de outros seres que ama, como amigos. Reflexo d
 ### Silêncio
 
 É silencioso, tende a não fazer barulho, a não ser notado, a não incomodar. Para ser aceito, é preciso não incomodar o outro, não incomodar a própria mãe, e por isso, como adulto, tende a ficar calado, a não interferir na atmosfera do ambiente, a não ser visto pelo outro.
+
+
+
+## Parte 2: Aprofundamento
+
+### A Delicadeza da Postura e da Expressão Corporal
+
+Se destaca por sua postura suave e delicada em comparação com outras personalidades. Geralmente, tem um corpo esbelto, com as costas curvadas para a frente e os ombros fechados, como se quisesse se encolher. Essa postura reflete seu desejo de não ser notado e de se esconder dos outros. Ao reprimir a raiva que sente por si mesmo, ele acaba encurvando o peito. Seu rosto é marcante, uma característica típica desse tipo, mas seu olhar é suave, cheio de emoção, e carrega um ar de súplica. Ao interagir com o mundo ao seu redor, ele revela tanto sua doçura quanto seu sofrimento, buscando despertar a bondade e o amor nas pessoas que o cercam.
+
+### Sempre Sedento de Amor e Contato Físico
+
+O E4 social vive como um refugiado emocional, sempre sedento de amor e contato físico, que representam a “água” que ele nunca teve o suficiente quando criança.
+
+> #### Carrega consigo a necessidade de um abraço que faltou ou foi negado na infância
+
