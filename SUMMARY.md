@@ -1,3 +1,4 @@
 # Table of contents
 
-* [“Vergonha” (Inveja Social)](README.md)
+* [Eneagrama das Personalidades](README.md)
+* [“Vergonha” (Inveja Social)](vergonha-inveja-social.md)
