@@ -67,3 +67,73 @@ Tem dificuldade de adaptação a regras, leis e convenções. Muitas vezes, imag
 Não é tão extrovertido, mas sente prazer em contar suas experiências compulsivamente e desavergonhadamente. “Se eu não contar, é como se não tivesse acontecido”. Seu objetivo, mais do que compartilhar, é impressionar o público e sentir-se superior, mesmo quando o que ele diz o rebaixa.
 
 Quando (finalmente) não consegue nada com suas manipulações, se direciona contra si mesmo, assumindo sua responsabilidade, reconhecendo sua culpa. Reflete dentro da sua solidão e, finalmente, reconhece e entende seus sentimentos e ações.
+
+***
+
+### Irresponsável
+
+Deseja, no fundo, que algo ou alguém cuide daqueles aspectos que não se sente capaz de sustentar ou desenvolver sozinho. Em um primeiro momento, a responsabilidade sempre é do outro. Somente quando ele para e reflete, entende a sua responsabilidade. Fora isso, pode ser incompreensível, justificando explosões de mau humor, raiva, grosseria etc. Reclamar é seu mecanismo infantil mais comum.
+
+Também tende a comportamentos obsessivos, seja por uma pessoa que ama ou seja por um hobby confortável. Considera sua única salvação, talvez para controlar uma depressão que não conseguiu conter.
+
+***
+
+### Generoso e Avassalador
+
+Em suas relações, para ser visto, pode se tornar incapaz de se manter calmo ou de admitir igualdade com os outros. Para impor seus desejos, tende a se tornar agressivo, abusivo, opressor, humilhador e vingativo. Por outro lado, também pode ser extremamente generoso, cuidadoso e preocupado com o outro, mostrando uma natureza extremamente polarizada e instável.
+
+***
+
+### Insatisfeito
+
+“Se colocarem, ele grita. Se tirarem, ele chora”. A insatisfação está presente em quase tudo. Está associada à crença inconsciente de que nada e nem ninguém é suficiente. Há uma constante sensação de vazio.
+
+***
+
+### Inconstante
+
+É muito criativo e talentoso, mas frequentemente encontra dificuldade em finalizar seus projetos - possui exigências muito elevadas para uma autoestima tão baixa. Então, pode tentar se esconder e se refugiar em uma visão muito idealizada de si mesmo. Tem muitos sonhos e deseja ser reconhecido e admirado, mas torna-se difícil lidar com fracassos e obstáculos.
+
+A falta de disciplina ou incapacidade de seguir um caminho constante pode levar a decepções. Quando se sente incapaz, tende a mascarar o sentimento de incapacidade com muita raiva ou desvalorização, tanto consigo mesmo quanto com o ambiente e as outras pessoas.
+
+***
+
+### Ciúmes
+
+Pode sentir ciúmes de forma muito intensa, não só no sentido romântico, mas também em contextos de família, trabalho, vida social e amizades, ainda que tente disfarçar. Sente-se em um estado de constante competição, avaliando ser o preferido em relação às outras pessoas. Não se sentir escolhido machuca muito, projetando sua raiva no seu oponente.
+
+Mas não é de qualquer maneira: é muito esperto e inteligente, conhece o terreno por onde anda, sabendo muito bem como provocar os outros.
+
+***
+
+### Sensível e Artístico
+
+Quando atinge a maturidade emocional, desenvolve uma compreensão profunda e empática com os outros e aprende a enfrentar conflitos de forma positiva e construtiva. Possui uma compreensão emocional única, entendendo bem a complexidade dos sentimentos. Conecta-se profundamente com o outro, com uma compaixão genuína.
+
+Vive em seu mundo interior, com paisagens mentais intensas, onde se sente livre para cultivar e analisar seus sentimentos. Seu mundo interior o leva a se interessar pela arte, expressando-se criativamente. Valoriza a beleza e o senso estético como autoexpressão de seu estilo de vida.
+
+Muitas pessoas com essa personalidade tornam-se verdadeiros artistas em diferentes campos. São capazes de se tornarem grandes atores, com lindos toques criativos e artísticos. Estão sempre em busca de crescimento pessoal, tendem a ser mais abertos às psicoterapias e, quando encontram vínculos de confiança, respeito e afeição, conseguem responder positivamente ao tratamento.
+
+***
+
+### Desvalorizador
+
+Tende a menosprezar o outro abertamente pelos seus defeitos e deficiências. Desvalorizar, menosprezar e culpar é a sua forma de fugir de seu próprio sentimento de inutilidade. Este é o subtipo mais desvalorizador do Eneagrama.
+
+***
+
+### Egoísta
+
+Ele mergulha no próprio sofrimento para não realizar tarefas ou para delegá-las ao outro. Sempre arranja justificativa para sua dificuldade. O egoísmo vem da sua convicção de que o próprio sofrimento é mais importante que o sofrimento do outro.
+
+***
+
+### Violento
+
+Pode apresentar comportamentos nocivos, chegando à violência física, sobretudo na relação ou família. Especialmente quando não suporta a frustração, ou o medo de perder o controle sobre a situação.
+
+***
+
+### Extravagante
+
+Gosta de se sentir diferente, único e original. Por exemplo, pode se vestir de maneira chamativa e contra a corrente. Também o torna corajoso, aventureiro, minimizando riscos e perigos.
