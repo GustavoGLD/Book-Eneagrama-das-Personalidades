@@ -2,6 +2,6 @@
 
 * [Eneagrama das Personalidades](README.md)
 
-## Inveja
+## 4-Inveja
 
-* [“Vergonha” (Inveja Social)](inveja/vergonha-inveja-social.md)
+* [“Vergonha” (Inveja Social)](4-inveja/vergonha-inveja-social.md)
