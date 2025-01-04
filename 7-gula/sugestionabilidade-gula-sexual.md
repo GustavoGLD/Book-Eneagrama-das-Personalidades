@@ -1,3 +1,7 @@
+---
+icon: venus-mars
+---
+
 # "Sugestionabilidade" (Gula Sexual)
 
 ## Parte 1: Características Gerais

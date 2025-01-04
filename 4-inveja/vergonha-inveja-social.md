@@ -1,3 +1,7 @@
+---
+icon: users
+---
+
 # “Vergonha” (Inveja Social)
 
 Caracterizado pela angústia de sentir não viver de acordo com seus ideais. Sente-se inferior, inseguro. Tímido, se lamentando e se culpando. Ele está em busca de um amor no mundo que pressente nunca encontrar, entrando em sofrimento, muitas vezes à mercê de outra pessoa. _Oscar Ichazo_ intitula esse tipo como “_Vergonha_”.
