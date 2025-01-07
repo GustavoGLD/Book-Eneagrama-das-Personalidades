@@ -317,3 +317,232 @@ Ele é movido pelo sentimento dos outros. Ele não sente algo profundamente, a m
 > #### Sentir empatia é o que o faz sentir que está vivo, pois ele depende dessa troca emocional para combater a solidão e se sentir validado.
 
 Sem isso, ele se sente vazio e desconectado.
+
+***
+
+### Se comunica por lamentos <a href="#id-54cd" id="id-54cd"></a>
+
+O E4 social tem _**pouca autonomia**_ e, por não se sentir digno de pedir ajuda diretamente, se comunica com lamentos.
+
+> #### Seu pedido de ajuda nunca é claro; vem disfarçado de lágrimas, doçura, ironia ou até mesmo culpa direcionada ao outro,
+
+especialmente quando está frustrado, raivoso ou desapontado com algo que esperava e não aconteceu.
+
+No contexto familiar, o E4 social aprendeu a se comportar de forma a não incomodar ou irritar sua mãe, evitando punições ou rejeições. No entanto,
+
+> #### ele esqueceu de ouvir suas próprias necessidades e de confiar que elas poderiam ser atendidas,
+
+algo que provavelmente nunca foi ensinado a ele.
+
+***
+
+### Espera ser salvo no silêncio do sofrimento - <a href="#b883" id="b883"></a>
+
+Em vez de pedir o que quer diretamente, ele se joga no sofrimento, na reclamação e até na doença, esperando que os outros o percebam e preencham o vazio que ele sente. Sua atitude é como um pedido indireto:
+
+> #### “Dê-me, por favor. Você não vê como estou sofrendo? Você não vê como me machuca?”
+
+***
+
+### Sente profunda vergonha de suas próprias necessidades - <a href="#id-1a1d" id="id-1a1d"></a>
+
+Quando o outro percebe sua fraqueza, ele sente vergonha.
+
+> Ele se envergonha de ser dependente, de não ser capaz de cuidar de si mesmo e de precisar do outro.
+
+Ver alguém sentir compaixão por ele só reforça esse desconforto. No fundo, ele se sente humilhado por ser visto como frágil e desamparado.
+
+***
+
+### Desiste antes de começar <a href="#fd10" id="fd10"></a>
+
+Tem uma tendência automática de desistir antes mesmo de tentar, convencido de que será um desastre. Ele avisa aos outros sobre sua suposta incapacidade, mas acaba cedendo ao desejo de agradar, pertencer e atender às expectativas alheias. Após muitas críticas internas, ele se esforça para fazer o melhor possível. Quando termina e recebe elogios, no entanto, minimiza qualquer reconhecimento.
+
+> #### Ele se sente desconfortável com o mérito, como se estivesse “roubando” algo que não merece. Na sua mente, nunca está realmente satisfeito com o que fez.
+
+***
+
+### Autoprivação de prazer <a href="#id-535b" id="id-535b"></a>
+
+Desde a infância, o E4 social internaliza a ideia de que o prazer vem sempre acompanhado de punição ou dor. Ele evita se permitir sentir prazer, com medo de que seja passageiro ou ilusório. Ao mesmo tempo,
+
+> #### aprende a acreditar que o sofrimento pode atrair atenção e suprir suas carências.
+
+Assim, ele entra em um ciclo vicioso: sofre na esperança de ser recompensado com felicidade, mas teme que, se parar de sofrer, perderá qualquer chance de receber o que precisa para ser feliz.
+
+***
+
+### Relação ambivalente com a comida <a href="#id-670f" id="id-670f"></a>
+
+Para o E4 social, a comida é mais que nutrição: é palco de um drama emocional. Na infância, comer vira um campo de batalha com a mãe — o prazer inicial da comida se transforma em uma forma de resistência e manipulação. Ele rejeita, acumula, ou até vomita a comida, não porque não quer comer, mas porque é a única arma que tem para prender a atenção da mãe e expressar seu ressentimento. Comer deixa de ser prazer e vira um tormento, refletindo sua luta com dependência e autonomia.
+
+Na vida adulta, essa relação com a comida ressurge em crises emocionais, como o fim de um relacionamento. A fome desaparece, esmagada pela avalanche de emoções.
+
+> #### Não come, pois sente que o vazio físico é preenchido pelo peso da dor emocional, como se viver essa intensidade fosse mais importante que cuidar do corpo.
+
+A comida, rejeitada ou esquecida, se torna o reflexo perfeito de seu conflito interno: querer ser independente, mas ainda estar preso ao desejo de cuidado e proteção.
+
+***
+
+### Não se expressa, se limitando a posição de vítima <a href="#id-2007" id="id-2007"></a>
+
+Vive refém do medo do abandono, sacrificando sua liberdade e espontaneidade.
+
+> #### Evita expressar suas opiniões e razões, temendo punição ou rejeição, se escondendo em uma posição de vítima.
+
+Em conflitos, não defende suas ideias, mas joga a culpa no outro: “Você quem deveria pensar por mim.”
+
+> #### Em vez de enfrentar seu próprio sentimento de inadequação, projeta-a nos outros, para que o outro se sinta inadequado.
+
+Defende com paixão quem sofre injustiça, mas não exerce forças para si mesmo. No fundo, acredita que não merece defesa e se sente _**fraco demais**_ para sustentar suas próprias razões.
+
+***
+
+### Justificando os outros ao invés de se defender <a href="#id-9f33" id="id-9f33"></a>
+
+Sua alta empatia e sensibilidade à dor dos outros funcionam como um mecanismo para evitar olhar para suas próprias feridas. Ele não se sente forte o suficiente para se defender e não acredita que alguém realmente o protegerá. Sua dificuldade em reconhecer a raiva como uma energia vital saudável o impede de agir com espontaneidade e seguir seus instintos. Em vez de entrar em contato com seu ódio reprimido, ele prefere se manter na posição de vítima, onde pode encontrar conforto e justificar sua paralisia.
+
+***
+
+### Uma Inveja paralisante e oculta <a href="#cfbf" id="cfbf"></a>
+
+A inveja do E4 social se manifesta em admiração, constantemente se vendo inferior que os outros.
+
+> #### Ele não enfrenta seu sentimento de deficiência, nem vai atrás lutar pelo o que quer. Em vez disso, idolatra o outro, tentando imitá-lo enquanto se convence de que jamais será à altura.
+
+Diferente de quem usa a inveja como um impulso odioso ou uma determinação incansável, ele se paralisa: cai em um ciclo de autossabotagem e desvalorização, consumido por comparações. No fundo, essa “admiração” é apenas uma máscara para sua inveja oculta e corrosiva.
+
+***
+
+### Invisibilidade e Desejo de Ser Notado <a href="#id-29f6" id="id-29f6"></a>
+
+Embora o E4 social não queira estar no centro das atenções de maneira ostensiva, ele teme a invisibilidade.
+
+> #### O sofrimento é uma maneira de ser notado sem parecer que está buscando ativamente por atenção. Ele pode sentir que, ao exibir sua dor, os outros finalmente perceberão sua profundidade e importância,
+
+mesmo que ele não peça por isso diretamente.
+
+***
+
+### Uma fantasia de grandeza frustrada <a href="#e74a" id="e74a"></a>
+
+No E4 social, convivem dois opostos: um profundo sentimento de impotência e o desejo de ser especial.
+
+> #### Ele se fantasia em uma superioridade secreta, mas é sabotado pela sensação de impotência, caindo em autocrítica, vazio e sofrimento.
+
+***
+
+### Espera ser reconhecido <a href="#c62d" id="c62d"></a>
+
+Quando conquista algo, evita se vangloriar, pois isso o envergonha e causa desconforto.
+
+> #### Mesmo com vergonha, espera ser reconhecido pelos outros, e quando isso não acontece, sente-se intensamente frustrado.
+
+***
+
+### Medo de agir <a href="#id-31ff" id="id-31ff"></a>
+
+O E4 social internaliza a ideia de que não é importante, porque cresceu sentindo-se desvalorizado. Isso cria uma ferida profunda de insegurança e medo da vida.
+
+> #### Ele tem dificuldade em se afirmar, aproveitar as oportunidades e se jogar nas experiências. Ao invés disso, tende a se isolar, fugindo do mundo.
+
+***
+
+### Medo de se entregar <a href="#df4d" id="df4d"></a>
+
+A falta de confiança em si mesmo e o medo de rejeição criam uma barreira que o impede de formar vínculos.
+
+> #### Sua maior necessidade é se conectar com os outros, mas ele sente que não é capaz de se entregar plenamente, por medo e falta de confiança em si mesmo.
+
+***
+
+### Adoecer é uma chance de conquistar o outro <a href="#id-558a" id="id-558a"></a>
+
+A doença pode ser uma forma inconsciente de escapar da _**impotência de agir**_ e do _**medo do abandono**_. Ela se torna uma maneira de prender o outro ao seu lado, despertando pena ou culpa e evitando o afastamento.
+
+> #### Ao se colocar em um estado de fragilidade, ele desarma o outro, impedindo que a raiva ou a separação aconteçam.
+
+Em alguns casos, a doença também funciona como uma _**vingança disfarçada**_, uma punição que faz o outro se sentir culpado.
+
+> #### Outras vezes, é forma de dizer “não” as exigências ou situações desconfortáveis sem precisar enfrentar um confronto direto.
+
+***
+
+### Fugindo de relações casuais e/ou superficias <a href="#abb3" id="abb3"></a>
+
+O E4 social busca amizades que seja íntimas, intensas e especiais.
+
+> #### Essa aversão às conexões casuais está ligada à sua dificuldade em ser espontâneo, resultado do seu medo de ser julgado, limitando-se a contextos onde se sente completamente seguro.
+
+Relações casuais ou onde sente que pode ser exposto são evitadas, reservando sua vulnerabilidade apenas para quem realmente confia.
+
+***
+
+### Contruindo uma autoidentidade na melancolia <a href="#c0ab" id="c0ab"></a>
+
+A trágica imagem reflete o senso de identidade que o social E4 construiu, sua possibilidade de existir reside no sofrimento por algo que perdeu: amor, o outro, a própria vida.
+
+> #### É como se ele constantemente apresentasse ao mundo o personagem de alguém abandonado, triste e solitário.
+
+***
+
+### Não consciente do quanto suga dos outros <a href="#dd29" id="dd29"></a>
+
+> #### Acredita que sua inferioridade o torna incapaz de prejudicar os outros, mas não percebe que seu autoboicote os afeta indiretamente.
+
+***
+
+### Sutil crueldade em valorizar e desvalorizar o outro <a href="#id-1db2" id="id-1db2"></a>
+
+Sem plena consciência, age com crueldade sutil ao negar o valor ou amor do outro, destruindo laços com mensagens implícitas de desconfiança.
+
+> #### Oscila entre idealizar e menosprezar, deixando os outros inseguros e feridos. Esse ciclo, muitas vezes inconsciente, acaba ferindo e desgastando aqueles que tentam se conectar com ele.
+
+***
+
+### É preciso reconhecer a própria inveja e agressividade <a href="#id-1c07" id="id-1c07"></a>
+
+Enquanto não reconhece seu comportamento passivo-agressivo e invejoso, impede a si mesmo de crescer e, secretamente, tenta limitar os outros: O que não permite para si, também não quer para ninguém.
+
+> #### Aceitar sua inveja e assumir suas responsabilidades é essencial para parar de sobrecarregar os outros, deixar de se comparar ou de se sentir impotente, e começar a construir algo com seus próprios recursos.
+
+***
+
+## Parte 3: Auto-destruição
+
+### Medo dos outros
+
+> #### Ele vê o mundo como caótico, imprevisível e ameaçador., que pode machucá-lo a qualquer momento. Isso o faz se sentir indefeso, vulnerável e exposto,
+
+como se não tivesse uma pele para protegê-lo. Incapaz de encontrar uma saída,
+
+> #### ele se retrai e se paralisa, temendo ser novamente ferido.
+
+***
+
+### Preso em um ciclo de sofrimento <a href="#ba92" id="ba92"></a>
+
+No fim, o E4 social acaba recriando ao seu redor situações que inevitavelmente se tornam fontes de dor. Tudo se repete como na infância: seus pais lhe causaram mais sofrimento do que conforto, e até a ausência deles era dolorosa. Ele se vê preso em um ciclo sem fim, como um cachorro que morde o próprio rabo, revivendo a mesma dor de sempre, sem conseguir escapar.
+
+***
+
+### Autopunição <a href="#id-0d16" id="id-0d16"></a>
+
+No E4 social, o masoquismo se manifesta com mais intensidade. O paradoxo está em se machucar ou causar dor física a si mesmo como forma de aliviar a dor emocional, encontrar algum prazer distorcido ou apenas sentir que existe. Acostumado às punições de sua mãe, ele continua o ciclo, infligindo castigos a si mesmo.
+
+> #### “Eu me decepcionei, tenho vergonha de mim!”,
+
+***
+
+### Dor como punição ou alívio <a href="#eaa1" id="eaa1"></a>
+
+O social E4 cria um ideal inalcançável de si mesmo, fruto da sensação de nunca ter sido bom o suficiente para satisfazer as expectativas maternas. Isso o leva à frustração constante e ao sofrimento emocional, buscando, por vezes, a dor física como forma de punição ou alívio.
+
+> #### Ele se coloca em situações autodestrutivas, explorando a linha entre dor e prazer, como se o sofrimento validasse sua existência.
+
+Nos casos extremos, o ciclo pode culminar em doenças ou até em gestos de suicídio,
+
+> #### como uma vingança silenciosa contra aqueles que ignoraram sua dor e necessidades: “Olhem para mim, vejam o que fizeram.” É uma tentativa final de ser notado e compreendido.
+
+repete internamente, enquanto a angústia cresce. Ele acredita que só poderá se livrar dessa dor quando for “punido” o suficiente, perpetuando assim um ciclo de autopunição e sofrimento.
+
