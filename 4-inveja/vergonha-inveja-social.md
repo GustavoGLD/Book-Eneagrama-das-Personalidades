@@ -639,3 +639,211 @@ O E4 social se funde emocionalmente com a experiência do outro, especialmente e
 Ele não se sente forte o bastante para se defender e também não acredita que alguém realmente o protegerá. Por isso, se afoga nas emoções alheias, como se estivesse lidando com as suas, mas sem precisar confrontá-las diretamente, como uma **válvula de escape**.
 
 > #### No fundo, essa sensibilidade é uma maneira de lidar com sua própria fragilidade.
+
+***
+
+## Parte 5: Dependência <a href="#id-39e1" id="id-39e1"></a>
+
+### Se vê impotente <a href="#c02c" id="c02c"></a>
+
+O E4 social se agarra às pessoas que ama como se sua sobrevivência dependesse delas.
+
+> #### O medo de abandono, perda e morte o assombra, porque ele acredita não ter os recursos para viver sozinho.
+
+Ele coloca os outros acima de si mesmo, valoriza mais a presença e apoio do outro do que sua própria força. Porém, mais cedo ou mais tarde, até essas pessoas perdem o brilho.
+
+> #### Ele cai em um vazio onde nada parece ter valor — nem ele, nem os outros, nem o mundo. Um abismo de impotência do qual ele não vê saída.
+
+***
+
+### Depende sua felicidade nos outros <a href="#c1b3" id="c1b3"></a>
+
+O social E4 vive com a convicção de que sua felicidade depende dos outros — de estar próximo deles, de ser notado e de inspirar sentimentos positivos.
+
+> #### Ele busca ser visto, amado e valorizado como forma de preencher o vazio interno que o consome.
+
+A presença do outro funciona quase como uma “muleta emocional”, capaz de aliviar temporariamente sua sensação de solidão e inadequação.
+
+> #### Sem essa confirmação externa, ele sente que desaparece, que não existe por si mesmo,
+
+como se sua identidade só pudesse ser validada através do olhar e da resposta do outro.
+
+***
+
+### Buscando amor na dependência <a href="#id-1ec8" id="id-1ec8"></a>
+
+O E4 social teme ocupar espaço, como se expressar suas necessidades ou ser feliz pudesse atrair rejeição ou punição. Seu maior medo é ser abandonado por querer demais.
+
+> #### A lógica é cruel: “Se eu for feliz, não precisarei mais ser salvo, logo, serei abandonado” Ele escolhe ser dependente, reprimindo suas vontades e esperando que o outro venha salvá-lo.
+
+***
+
+### Submisso **e a**nulador de si mesmo <a href="#c3a2" id="c3a2"></a>
+
+O E4 social preserva inconscientemente seu **“vazio interior”**, mesmo que isso doa. Ele não sabe como lidar com esse vazio sozinho, um vazio que parece sufocar.
+
+> #### “Se nem minha mãe me amava, por que eu deveria me amar?” Esse pensamento o prende ao passado, esperando pela atenção que faltou na infância.
+
+— esperando que talvez alguém venha “resgatá-lo”.
+
+***
+
+### Se permite ser maltratado <a href="#id-9916" id="id-9916"></a>
+
+Assim como na infância, quando se culpava pelo abandono e acreditava ser a causa de não ser amada, o E4 social, adulto, acaba aceitando ser desvalorizado ou maltratado, desde que não perca o outro. Ele se afasta de quem o magoa, mas ainda mantém a esperança de que as coisas mudarão.
+
+> #### Se ilude fantasiando que, eventualmente, o outro perceberá seu valor e o amará como deseja.
+
+Com essa ideia fixa, ele aguenta anos em um relacionamento frustrante, esperando que algo mude por conta própria.
+
+> #### “Se eu te der tudo, se eu não me irritar, se eu aceitar seu tratamento inadequado, você não vai me deixar.”
+
+***
+
+### Persistente mesmo em relacionamentos ruins <a href="#id-87d1" id="id-87d1"></a>
+
+Sua necessidade de ser amado se transforma em um desejo intenso que não aceita desistir.
+
+> #### Ele não desiste de realizar seu sonho de ser amado.
+
+Quando finalmente entra em um relacionamento, se enche de ansiedade, com medo de ser rejeitado ou abandonado.
+
+> #### O que antes era a espera por um grande amor, se transforma no medo constante de perdê-lo.
+
+***
+
+### Sentindo-se incompreendido <a href="#d347" id="d347"></a>
+
+Ele tem dificuldade de expressar suas verdadeiras necessidades e, como resultado, sente-se sozinho e incompreendido. Ele sofre ao não encontrar alguém que o entenda.
+
+> #### No fundo, deseja uma pessoa sensível que perceba sua fragilidade e o acolha, como se fosse uma criança. Esse é o desejo mais profundo dele, mesmo que ele tente escondê-lo por vergonha.
+
+Quando ele encontra alguém que cuida de tudo — das tarefas, dos problemas, que dá atenção e carinho, que o abraça antes mesmo que ele peça — , ele se sente protegido e seguro. Dessa forma, consegue acalmar a ansiedade de enfrentar um mundo que percebe como hostil e desconhecido.
+
+***
+
+### O luto como uma oportunidade para ser livre <a href="#id-0d0d" id="id-0d0d"></a>
+
+O drama do E4 social atinge seu auge **quando ele perde alguém importante**. A dor é avassaladora — emocional, psicológica e até física — como se uma parte dele estivesse faltando. Ele se sente devastado, convencido de que não conseguirá seguir em frente sem essa pessoa que, em sua mente idealizada, o acompanhava e protegia. A vida perde o sentido, o vazio toma conta: o vazio pela ausência da pessoa amada ou pela frustração de alguém que não corresponde às suas expectativas.
+
+Essa perda, porém, carrega uma oportunidade. A dor extrema pode chacoalhá-lo para uma descoberta libertadora: ele não apenas sobrevive, como pode viver de verdade.
+
+> #### Livre do medo e da dependência do outro, ele aprende a cuidar de si, a tomar decisões e a ocupar seu tempo consigo mesmo.
+
+Quando um vínculo fundamental se rompe, ele pode finalmente sentir o que significa ser livre e viver a própria vida.
+
+***
+
+## Parte 6: Amor <a href="#id-87bf" id="id-87bf"></a>
+
+### Em busca de uma “alma gêmea” salvadora <a href="#acb3" id="acb3"></a>
+
+O E4 social vive preso a um vazio interno, incapaz de lidar com ele. Não sabe como ficar sozinho com esse vazio, que o consome e o corrói. Ele carrega a crença de que, se nem sua mãe o amou, por que ele deveria se amar?
+
+> #### _Ele nunca superou a falta de atenção que recebeu na infância e ainda espera que alguém, talvez uma “alma gêmea”, venha resgatá-lo, oferecendo a validação que nunca teve._
+
+Ele continua preso a essa **expectativa infantil**, incapaz de tomar as rédeas de sua própria vida e lidar com suas próprias emoções.
+
+***
+
+### **Um amor impossível de corresponder** <a href="#id-4785" id="id-4785"></a>
+
+A ferida central do E4 social está na frustração pelo amor materno idealizado que nunca teve. Para preencher esse vazio, ele busca relações que prometam fusão total, onde possa confiar incondicionalmente, como uma criança nos braços da mãe.
+
+> #### Pequenas imposições de limites ou distâncias no relacionamento são vividos como se fossem rejeições profundas,
+
+enquanto o desejo por essa conexão absoluta inevitavelmente termina em decepção.
+
+> #### Sem perceber, ele projeta no parceiro a expectativa de um amor que jamais poderá ser plenamente correspondido, perpetuando o ciclo de dependência emocional.
+
+***
+
+### O amor como um sentido da vida <a href="#id-6d5b" id="id-6d5b"></a>
+
+> #### Para ele, o amor é o centro da sua existência; sem ele, a vida parece vazia e sem propósito.
+
+Ele vive na espera do “grande amor”, acreditando que só então sua vida ganhará sentido, como se sua felicidade e realização dependessem inteiramente desse momento redentor.
+
+***
+
+### Melancólico, acreditando que logo será abandonado <a href="#a6e5" id="a6e5"></a>
+
+O medo de perder o amor traz uma melancolia que consome o presente.
+
+> #### A ideia de que “alguém melhor logo tomará meu lugar” impede de viver o momento e aproveitar o relacionamento.
+
+A dor da perda já é antecipada, como se fosse inevitável: “Mais cedo ou mais tarde, ele vai me deixar.” Quando a separação finalmente ocorre, não só é devastadora como também reforça a dor já carregada. Esse ciclo transforma o E4 social em alguém que se sente constantemente vítima, como se sua própria identidade dependesse de quanta dor e privação ele consegue suportar.
+
+***
+
+### Cuidando excessivamente do outro <a href="#id-9ea1" id="id-9ea1"></a>
+
+Tem uma visão idealizada do relacionamento, onde ele cuida do outro em todos os aspectos: ele tenta ser uma mistura de _**pai**_, _**parceiro perfeito**_, _**amigo**_ e até _**terapeuta**_. Esse comportamento acaba tornando o outro dependente,
+
+> #### _como se a maneira de evitar o abandono fosse se tornar indispensável, atendendo a todas as necessidades do parceiro._
+
+Embora isso ajude a acalmar a ansiedade, muitas vezes faz com que ele sacrifique o papel de parceiro romântico, _**assumindo o papel de pai ou mãe**_.
+
+***
+
+### Descontente em alcançar a estabilidade amorosa desejada <a href="#id-875b" id="id-875b"></a>
+
+Em momentos de equilíbrio e segurança no relacionamento, o E4 social muitas vezes se vê incapaz de sentir amor genuíno pela outra pessoa.
+
+> #### Sem ameaças de ser abandonado, seu olhar pode até começar a se desviar, buscando algo além. Para ele, o amor frequentemente se reduz a um esforço constante para evitar o abandono
+
+e encontrar no outro uma certeza ou validação que, no fundo, ele não sente e talvez nunca consiga encontrar. Sua forte dependência emocional se revela ainda mais quando atinge um nível de intimidade e confiança, transformando o vínculo em um porto seguro que ele teme perder a qualquer custo.
+
+***
+
+### Autoimagem de “parceiro perfeito insubstituível” <a href="#id-0c06" id="id-0c06"></a>
+
+Ele tende a se posicionar diante do parceiro como alguém único, quase como um sábio herói incomparável. Existe um _**lado narcisista**_ nisso, não de forma agressiva e explícita, mas de uma maneira sensível e sutil, alimentando uma autoilusão de ser alguém insubstituível para a outra pessoa, ainda que o relacionamento acabe._“Como o outro vai se esquecer de mim?”_
+
+> #### Ele trabalha para que o outro reconheça nele características e aspectos nunca encontrados em ninguém; há um investimento contínuo em se tornar insubstituível, em demonstrar seu próprio valor.
+
+Essa dinâmica se desenvolve como uma compensação pelo amor ambivalente ou distante que recebeu dos pais. Ele cria, dentro de si, uma figura que o ajuda a conquistar amor e validação.
+
+> #### Ele assume o papel de um príncipe bom e sábio, que está sempre disponível. Ele acredita que, ao fazer isso, será digno de amor.
+
+E que, se o outro o rejeitar, um dia se arrependerá amargamente por essa escolha.
+
+Ele continua preso a essa **expectativa infantil**, incapaz de tomar as rédeas de sua própria vida e lidar com suas próprias emoções.
+
+***
+
+### Escondendo seu lado sombrio <a href="#d18b" id="d18b"></a>
+
+O social E4 evita mostrar seu lado mais sombrio em um relacionamento — o que é negativo, pesado ou inaceitável.
+
+> #### Ele teme que isso manche sua imagem e prejudique a estima do outro.
+
+Por isso, raramente se revela de forma autêntica:
+
+> #### não compartilha sua dor existencial, sua solidão interna ou sentimentos como inveja e ciúme, temendo rejeição.
+
+Ele também evita expressar abertamente suas necessidades e desejos, com medo de parecer um fardo. No entanto,
+
+> #### espera que o parceiro intua tudo isso, como se pudesse ler sua mente
+
+e entender o que ele deseja sem que precise dizer.
+
+***
+
+### Desabafando, medindo o quanto é ouvido e amado <a href="#ff57" id="ff57"></a>
+
+Desabafando ele busca a confirmação de que a outra pessoa está disponível, o vê e se empatiza por ele, como um termômetro da relação. Mas essa tática cria frustração: ele só mostra o que considera digno de amor — a imagem do sofredor –, enquanto alimenta a ideia de que, se fosse visto como realmente é, seria rejeitado.
+
+> #### Sua constante insatisfação (“estou triste”, “estou inseguro”) é uma busca disfarçada de validação. Quando a dor aperta de verdade, ele se fecha, convencido de que ninguém pode ajudá-lo — nem ele mesmo.
+
+***
+
+### Sexualidade tardia <a href="#id-81a1" id="id-81a1"></a>
+
+O amor erótico e sexual é pouco desenvolvido. Isso acontece porque ele tende a reprimir seus instintos e emoções. Além disso, o amor em toques físicos não foi experimentado na relação com a mãe, onde o contato físico foi deficiente. Como resultado, **ele cresce sem desenvolver confiança e segurança no próprio corpo.**
+
+Durante a adolescência, o E4 sente sua _**sexualidade bloqueada**_ e isso muitas vezes gera _**culpa**_.
+
+> #### _Na vida adulta, o corpo e a sexualidade acabam sendo usados como uma forma de obter um tipo de amor parecido com o materno, e não como uma expressão genuína de desejo._
+
+O objetivo do amor físico passa a ser _**evitar o abandono**_, garantindo que o outro permaneça por perto.
