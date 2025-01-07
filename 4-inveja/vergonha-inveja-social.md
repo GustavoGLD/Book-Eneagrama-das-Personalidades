@@ -546,3 +546,96 @@ Nos casos extremos, o ciclo pode culminar em doenças ou até em gestos de suic�
 
 repete internamente, enquanto a angústia cresce. Ele acredita que só poderá se livrar dessa dor quando for “punido” o suficiente, perpetuando assim um ciclo de autopunição e sofrimento.
 
+***
+
+## Parte 4: Fantasia <a href="#df7f" id="df7f"></a>
+
+### Fantasia como refúgio e ilusão de controle <a href="#f6a5" id="f6a5"></a>
+
+Para o E4 social, a fantasia surge como uma _**fuga da realidade**_ insuportável ou frustrante.
+
+> #### Desde a infância, ele se retira mentalmente para mundos imaginários onde é o protagonista, sentindo-se importante e protegido.
+
+Reinventar histórias ou distorcer fatos se torna uma forma de aliviar a dor e ganhar uma sensação temporária de controle.
+
+> #### No entanto, essa “tábua de salvação” pode se transformar em prisão, afastando-o da ação concreta e da vida real.
+
+***
+
+### Idealização de relacionamentos <a href="#faa7" id="faa7"></a>
+
+Nas relações afetivas, o E4 social tende a idealizar o outro e a relação,
+
+> #### _**alimentando-se mais das fantasias que cria do que da troca real**._
+
+Ele constrói cenários perfeitos — encontros mágicos, viagens românticas, uma vida compartilhada digna de filme — mesmo que o relacionamento mal tenha começado ou sequer exista. Quando a realidade se mostra diferente, a frustração surge, mas
+
+> #### _**ele se apega à fantasia**_, acreditando que “um dia” tudo será como sonha.
+
+***
+
+### Fantasia e timidez patológica <a href="#id-9567" id="id-9567"></a>
+
+Na ausência de relacionamentos reais, a fantasia se torna um escape ainda mais intenso. Um simples olhar ou gesto pode dar início a grandes histórias de amor romântico e impossível, que funcionam como _**um alívio para a solidão e um disfarce para sua timidez paralisante**_. Esse ciclo reforça a dificuldade em lidar com situações concretas, especialmente no amor. O caminho para superar isso envolve transformar a imaginação em algo construtivo, usando-a para inspirar ações reais, e não como uma fuga permanente.
+
+***
+
+### Vergonha de contar suas fantasias <a href="#id-5181" id="id-5181"></a>
+
+As fantasias funcionam como um “teatro privado”, onde a pessoa é ao mesmo tempo protagonista e espectador, sem espaço para o público. Elas são _**guardadas em segredo**_, muitas vezes por _**vergonha ou medo de não serem compreendidas**_. O receio é que, ao serem compartilhadas, elas percam o prazer ou alívio que proporcionam, ou que o outro mostre a irrealidade do sonho, tirando a sensação de controle e prazer que a fantasia oferece.
+
+***
+
+## Parte 5: Emocionalidade <a href="#id-7157" id="id-7157"></a>
+
+### Profunda conexão com os próprios sentimentos <a href="#eec0" id="eec0"></a>
+
+O social E4 é o tipo mais conectado às suas emoções, acessando-as de _**forma direta e intensa**_. Ele tem dificuldade em contê-las, especialmente sentimentos como tristeza e decepção, que frequentemente o dominam como uma onda avassaladora, levando-o às lágrimas. Esse transbordamento emocional, porém, costuma lhe gerar _**desconforto e constrangimento**_.
+
+***
+
+### Reprimindo a raiva, mantendo a posição de vítima <a href="#id-773d" id="id-773d"></a>
+
+Como já dissemos, a raiva é a emoção menos acessível ao social E4.
+
+> #### Por medo de ser rejeitado ou abandonado, ele evita demonstrar raiva ou ressentimento por aqueles que o magoaram.
+
+Ao mesmo tempo, ele evita reconhecer essas emoções na consciência, _**temendo se tornar alguém “ruim”**_. Esse conflito interior acaba alimentando fantasias e comportamentos autodestrutivos.
+
+> #### Admitir o ódio significaria também quebrar a máscara de vítima e “boa pessoa” com a qual ele justifica suas lágrimas e pedidos de atenção.
+
+Ele não a percebe como uma energia natural e necessária para a vida, que poderia impulsioná-lo a agir, se defender ou se libertar de situações opressivas. Em vez disso,
+
+> #### ele associa a raiva a algo negativo ou destrutivo, reprimindo-a ao ponto de perder o contato com seus próprios instintos e espontaneidade.
+
+Nessa posição de vítima, ele encontra um tipo de “conforto” disfarçado, uma justificativa para sua paralisia e uma forma de lidar com a impotência. Permanecer nesse lugar de sofrimento, mesmo que doloroso, evita o risco de confrontar a realidade e assumir a responsabilidade por si mesmo. Esse ciclo cria uma armadilha emocional: ao evitar a raiva, ele também evita o crescimento e a transformação que poderiam levá-lo a uma vida mais autêntica e menos dependente dos outros.
+
+***
+
+### Triste, melancólico, sentindo-se inadequado, insuficiente <a href="#id-6c47" id="id-6c47"></a>
+
+A tristeza e a melancolia são as emoções mais acessíveis ao social E4, ligadas diretamente à crença de serem inadequados ou “deficientes”.
+
+> #### São essas emoções que o faz chorar, enquanto, no fundo, esperam ser visto e acolhido, como se isso pudesse finalmente trazê-lo segurança.
+
+***
+
+### Escravo dos próprios sentimentos <a href="#id-3f78" id="id-3f78"></a>
+
+A intensa emocionalidade do social E4 tem várias funções. Ela colore a vida, trazendo intensidade e um senso de singularidade,
+
+> #### tende a acreditar que seus sentimentos são especiais, profundos e únicos, que poucas pessoas são dignas de alcançá-las.
+
+É um refúgio onde ele confirma sua existência no mundo, mas, paradoxalmente, também onde se sente profundamente sozinho. _**Incapaz de gerenciar suas emoções**_, ele se torna escravo delas, sendo completamente dominado por seu turbilhão interno.
+
+***
+
+### Alta empatia pelos outros <a href="#id-7831" id="id-7831"></a>
+
+O E4 social se funde emocionalmente com a experiência do outro, especialmente em momentos difíceis.
+
+> #### A dor do outro se torna a sua dor; não há limites entre os sentimentos alheios e os seus, e a emoção toma conta de todo o seu mundo interno.
+
+Ele não se sente forte o bastante para se defender e também não acredita que alguém realmente o protegerá. Por isso, se afoga nas emoções alheias, como se estivesse lidando com as suas, mas sem precisar confrontá-las diretamente, como uma **válvula de escape**.
+
+> #### No fundo, essa sensibilidade é uma maneira de lidar com sua própria fragilidade.
