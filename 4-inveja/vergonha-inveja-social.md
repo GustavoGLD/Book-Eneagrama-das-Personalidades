@@ -847,3 +847,18 @@ Durante a adolescência, o E4 sente sua _**sexualidade bloqueada**_ e isso muita
 > #### _Na vida adulta, o corpo e a sexualidade acabam sendo usados como uma forma de obter um tipo de amor parecido com o materno, e não como uma expressão genuína de desejo._
 
 O objetivo do amor físico passa a ser _**evitar o abandono**_, garantindo que o outro permaneça por perto.
+
+***
+
+### Constante sentimento de culpa
+
+Esse tipo carrega uma culpa constante,&#x20;
+
+> #### sempre sentindo que está errando ou que pode ferir alguém—como se sua própria existência fosse um equívoco.&#x20;
+
+O medo de decepcionar a mãe na infância se transforma em um receio exagerado de causar dano aos outros. Sua empatia amplifica essa sensação, fazendo-o carregar o peso das emoções alheias de forma avassaladora.
+
+> #### A culpa também se torna uma forma de autopunição. Ele acredita merecer o castigo,&#x20;
+
+sofre em silêncio e não tenta se defender. Indefeso, superestima seus erros e as consequências de seus atos, reforçando um ciclo de sofrimento.
+
