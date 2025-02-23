@@ -866,12 +866,6 @@ sofre em silêncio e não tenta se defender. Indefeso, superestima seus erros e 
 
 ### Uma forte necessidade de aprovação social reprimida
 
-O E4 Social é o tipo Social mais difícil de reconhecer.&#x20;
+O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter uma forte necessidade de sucesso e reconhecimento para se sentir aceito e pertencente ao grupo, ele reprime esse desejo e tem dificuldade em admiti-lo. Se vê como pouco talentoso ou pouco valioso, adotando uma postura retraída e discreta.
 
-> #### Enquanto outros subtipos sociais expressam abertamente o desejo de afirmação e valorização, o E4 social vive isso de maneira retraída, tímida e oculta. Ele tende a desistir desse desejo porque não se sente talentoso ou valioso o suficiente.
-
-Geralmente, um subtipo social, independentemente de sua paixão dominante, demonstra uma forte necessidade de sucesso e reconhecimento para sentir que pertence ao seu grupo. O E4 social, no entanto,&#x20;
-
-> #### Ele reprime esse desejo de aprovação e tem dificuldade em reconhecê-lo. Sua tendência a desistir o faz acreditar que não tem talento ou valor, transformando sua necessidade de reconhecimento em vergonha.
-
-A inveja por aqueles que alcançam sucesso se mistura a sentimentos de fracasso, culpa e inferioridade, tornando ainda mais difícil lidar com sua própria necessidade de afirmação.
+> #### Por trás da vergonha, esconde um desejo ardente por ser querido e aceito por todos, apresentando-se como suave, afetuoso, calmo e bom. Sem autovalidação interna, busca no olhar dos outros a confirmação de seu próprio valor.
