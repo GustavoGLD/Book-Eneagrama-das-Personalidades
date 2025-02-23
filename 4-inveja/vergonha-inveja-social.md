@@ -165,7 +165,23 @@ Ele sente ciúmes do parceiro ou de outros seres que ama, como amigos. Reflexo d
 
 
 
-## Parte 2: Aprofundamento
+## Parte 2: A paixão pela Vergonha
+
+Viver sob a paixão da vergonha significa sentir-se sempre em falta, oscilando entre o desejo intenso de ser visto e o medo de não estar à altura. Sua necessidade de pertencimento o leva a nutrir esse desejo reprimido, mantendo-se na fantasia de reconhecimento sem agir para conquistá-lo.
+
+### Uma forte necessidade por aprovação social reprimida
+
+O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter uma forte necessidade de sucesso e reconhecimento para se sentir aceito e pertencente ao grupo, ele reprime esse desejo e tem dificuldade em admiti-lo. Se vê como pouco talentoso ou pouco valioso, adotando uma postura retraída e discreta.
+
+> #### Por trás da vergonha, esconde um desejo ardente por ser querido e aceito por todos, apresentando-se como suave, afetuoso, calmo e bom. Sem autovalidação interna, busca no olhar dos outros a confirmação de seu próprio valor.
+
+### Buscando validação em sua vulnerabilidade <a href="#fa2b" id="fa2b"></a>
+
+O medo da rejeição o impede de dar o primeiro passo, então ele recorre a estratégias indiretas para obter o que deseja.
+
+> #### Minimiza-se, encolhe-se diante do outro, projetando uma vulnerabilidade que desperta cuidado e proteção. Seu foco não está na segurança, mas na validação emocional,
+
+como se cada gesto de atenção fosse uma gota que tenta preencher o poço sem fundo de sua carência.
 
 ### A Delicadeza da Postura e da Expressão Corporal
 
@@ -178,16 +194,6 @@ Se destaca por sua postura suave e delicada em comparação com outras personali
 O E4 social vive como um refugiado emocional, sempre sedento de amor e contato físico, que representam a “água” que ele nunca teve o suficiente quando criança.
 
 > #### Carrega consigo a necessidade de um abraço que faltou ou foi negado na infância
-
-***
-
-### Buscando validação em sua vulnerabilidade <a href="#fa2b" id="fa2b"></a>
-
-O medo da rejeição o impede de dar o primeiro passo, então ele recorre a estratégias indiretas para obter o que deseja.
-
-> #### Minimiza-se, encolhe-se diante do outro, projetando uma vulnerabilidade que desperta cuidado e proteção. Seu foco não está na segurança, mas na validação emocional,
-
-como se cada gesto de atenção fosse uma gota que tenta preencher o poço sem fundo de sua carência.
 
 ***
 
@@ -863,9 +869,3 @@ O medo de decepcionar a mãe na infância se transforma em um receio exagerado d
 sofre em silêncio e não tenta se defender. Indefeso, superestima seus erros e as consequências de seus atos, reforçando um ciclo de sofrimento.
 
 ***
-
-### Uma forte necessidade de aprovação social reprimida
-
-O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter uma forte necessidade de sucesso e reconhecimento para se sentir aceito e pertencente ao grupo, ele reprime esse desejo e tem dificuldade em admiti-lo. Se vê como pouco talentoso ou pouco valioso, adotando uma postura retraída e discreta.
-
-> #### Por trás da vergonha, esconde um desejo ardente por ser querido e aceito por todos, apresentando-se como suave, afetuoso, calmo e bom. Sem autovalidação interna, busca no olhar dos outros a confirmação de seu próprio valor.
