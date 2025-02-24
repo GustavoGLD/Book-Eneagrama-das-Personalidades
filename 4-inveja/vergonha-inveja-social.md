@@ -175,6 +175,18 @@ O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter 
 
 > #### Por trás da vergonha, esconde um desejo ardente por ser querido e aceito por todos, apresentando-se como suave, afetuoso, calmo e bom. Sem autovalidação interna, busca no olhar dos outros a confirmação de seu próprio valor.
 
+### Apego ao sofrimento
+
+A vergonha o mantém preso à sensação de inferioridade e vitimização, fazendo com que evite a rejeição ao se afastar antes mesmo de receber "não".&#x20;
+
+Extremamente sensível, desiste facilmente diante de qualquer recusa e se refugia na falta e na desconfiança em si mesma.&#x20;
+
+No fundo, busca ser resgatado, cuidado e admirado, mas também precisa da rejeição para reafirmar sua identidade baseada na carência, sem a qual perderia a esperança de salvação.&#x20;
+
+Ele é viciado na química da tristeza e melancolia, sentindo-as no peito como uma respiração profunda e sombria, ao mesmo tempo dolorosa e vital. (
+
+Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser menosprezado ([#id-87d1](vergonha-inveja-social.md#id-87d1 "mention") ). Pensa: "Mesmo que você faça tudo por mim, eu te amo porque te compreendo. E assim, apesar de tudo, sei perdoar e amar—sou bom, sou digno de ser amado." ([#id-9916](vergonha-inveja-social.md#id-9916 "mention"),[#id-0c06](vergonha-inveja-social.md#id-0c06 "mention"))
+
 ### Buscando validação em sua vulnerabilidade <a href="#fa2b" id="fa2b"></a>
 
 O medo da rejeição o impede de dar o primeiro passo, então ele recorre a estratégias indiretas para obter o que deseja.
