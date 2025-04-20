@@ -175,15 +175,19 @@ O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter 
 
 > #### Por trás da vergonha, esconde um desejo ardente por ser querido e aceito por todos, apresentando-se como suave, afetuoso, calmo e bom. Sem autovalidação interna, busca no olhar dos outros a confirmação de seu próprio valor.
 
+### A Delicadeza da Postura e da Expressão Corporal
+
+Se destaca por sua postura suave e delicada em comparação com outras personalidades. Geralmente, tem um corpo esbelto, com as costas curvadas para a frente e os ombros fechados, como se quisesse se encolher. Essa postura reflete seu desejo de não ser notado e de se esconder dos outros. Ao reprimir a raiva que sente por si mesmo, ele acaba encurvando o peito. Seu rosto é marcante, uma característica típica desse tipo, mas seu olhar é suave, cheio de emoção, e carrega um ar de súplica. Ao interagir com o mundo ao seu redor, ele revela tanto sua doçura quanto seu sofrimento, buscando despertar a bondade e o amor nas pessoas que o cercam.
+
 ### Apego ao sofrimento
 
 A vergonha o mantém preso à sensação de inferioridade e vitimização, fazendo com que evite a rejeição ao se afastar antes mesmo de receber "não".&#x20;
 
-Extremamente sensível, desiste facilmente diante de qualquer recusa e se refugia na falta e na desconfiança em si mesma.&#x20;
+Extremamente sensível, desiste facilmente diante de qualquer recusa e se refugia na falta e na desconfiança em si mesmo.&#x20;
 
-No fundo, busca ser resgatado, cuidado e admirado, mas também precisa da rejeição para reafirmar sua identidade baseada na carência, sem a qual perderia a esperança de salvação.&#x20;
+No fundo, busca ser resgatado, cuidado e admirado. Mas também utiliza a rejeição como muleta para continuar sendo uma vítima — para ele, apenas sendo vítima é possível ser resgastado, cuidado e amado.
 
-Ele é viciado na química da tristeza e melancolia, sentindo-as no peito como uma respiração profunda e sombria, ao mesmo tempo dolorosa e vital. (
+Ele é viciado na química da tristeza e melancolia, sentindo-as no peito como uma respiração profunda e sombria, ao mesmo tempo dolorosa e vital.&#x20;
 
 Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser menosprezado ([#id-87d1](vergonha-inveja-social.md#id-87d1 "mention") ). Pensa: "Mesmo que você faça tudo por mim, eu te amo porque te compreendo. E assim, apesar de tudo, sei perdoar e amar—sou bom, sou digno de ser amado." ([#id-9916](vergonha-inveja-social.md#id-9916 "mention"),[#id-0c06](vergonha-inveja-social.md#id-0c06 "mention"))
 
@@ -191,13 +195,9 @@ Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser me
 
 O medo da rejeição o impede de dar o primeiro passo, então ele recorre a estratégias indiretas para obter o que deseja.
 
-> #### Minimiza-se, encolhe-se diante do outro, projetando uma vulnerabilidade que desperta cuidado e proteção. Seu foco não está na segurança, mas na validação emocional,
+> #### Minimiza-se, encolhe-se diante do outro, projetando uma vulnerabilidade que desperta cuidado e proteção. <mark style="color:blue;">Seu foco não está na segurança, mas na validação emocional</mark>,
 
 como se cada gesto de atenção fosse uma gota que tenta preencher o poço sem fundo de sua carência.
-
-### A Delicadeza da Postura e da Expressão Corporal
-
-Se destaca por sua postura suave e delicada em comparação com outras personalidades. Geralmente, tem um corpo esbelto, com as costas curvadas para a frente e os ombros fechados, como se quisesse se encolher. Essa postura reflete seu desejo de não ser notado e de se esconder dos outros. Ao reprimir a raiva que sente por si mesmo, ele acaba encurvando o peito. Seu rosto é marcante, uma característica típica desse tipo, mas seu olhar é suave, cheio de emoção, e carrega um ar de súplica. Ao interagir com o mundo ao seu redor, ele revela tanto sua doçura quanto seu sofrimento, buscando despertar a bondade e o amor nas pessoas que o cercam.
 
 ***
 
@@ -215,7 +215,7 @@ O E4 social vive como um refugiado emocional, sempre sedento de amor e contato f
 
 > #### frequentemente, **sente que nem tem energia para tentar**.
 
-Qualquer sinal de rejeição o faz antecipar a frustração e buscar uma “vingança” silenciosa: **ele foge**.
+Qualquer sinal de rejeição o faz antecipar a frustração e buscar uma “vingança” silenciosa: <mark style="color:blue;">**ele foge**</mark>.
 
 > #### Às vezes, essa fuga é literal; outras, ele se ausenta emocionalmente, permanecendo fisicamente presente, mas desconectado. Sua ausência é sentida, mas difícil de explicar
 
@@ -243,56 +243,75 @@ O E4 social carrega a sensação de ser invisível, sem valor, resultado da falt
 
 > #### Quando alguém demonstra interesse, ele fica perdido, desconfortável, como se fosse difícil de entender. O turbilhão de emoções que surge faz com que ele se desconecte ainda mais,
 
-duvidando da sinceridade do outro. A surpresa é grande, mas a desconfiança maior: como pode alguém realmente gostar dele, se nem ele mesmo se aceita completamente?\
-**Prisioneiro de uma “falsa deficiência”**
+duvidando da sinceridade do outro. A surpresa é grande, mas a desconfiança maior:&#x20;
+
+> "como pode alguém realmente gostar de mim, se nem eu mesmo me aceita completamente?"
+
+***
+
+### **Prisioneiro de uma “falsa deficiência”**
 
 O E4 social enxerga a vida por uma lente distorcida.
 
 > #### Cada experiência passa por um filtro de auto-ódio: se algo lhe falta, é porque não é digno; se não recebe o que deseja, é porque não merece.
 
-Ele transforma suas vivências em razões para se negar e se maltratar. Enquanto o E4 sexual luta e o de conservação suporta, o E4 social se afoga em desesperança. Ele não luta, não se resigna — apenas se consome.
+Ele transforma suas vivências em razões para se negar e se maltratar. Enquanto o E4 sexual luta e o de conservação suporta, o E4 social se afoga em desesperança.&#x20;
+
+> #### Ele não luta, não se resigna — apenas se consome.
 
 ***
 
-### Desvalorizando os outros <a href="#id-6ff8" id="id-6ff8"></a>
+### Desvaloriza os outros ao se desvalorizar <a href="#id-6ff8" id="id-6ff8"></a>
 
 Assim como ele pode supervalorizar pessoas, pode igualmente desvalorizá-las. Quando, finalmente, conquista a pessoa ou o objetivo que desejava, perde seu encanto:
 
 > #### _“Se ela ama alguém insignificante como eu, significa que há algo de errado com ela, caso contrário, ela aspiraria por algo melhor”_
 
-assim pensa ele, desvalorizando a si mesmo e ao outro…, mas contendo, no fundo, uma esperança de que ele realmente seja especial, digno de ser amado e admirado incondicionalmente.
+assim pensa ele, desvalorizando a si mesmo e ao outro…&#x20;
+
+> #### _mas há, no fundo, <mark style="color:blue;">uma esperança de que ele realmente seja especial</mark>, digno de ser amado e admirado incondicionalmente._
 
 ***
 
 ### Paradoxo: ser invisível, mas reconhecido. <a href="#id-17ba" id="id-17ba"></a>
 
-Está faminto por ser amado, e para alcançar isso, investe muita energia em ser reconhecido, ter um lugar no grupo, ser considerado e ser importante.
+Está <mark style="color:blue;">faminto por ser amado</mark> e, para alcançar isso,&#x20;
 
-Paradoxalmente, costuma ser solitário, silencioso e dócil. Ele prefere se esconder, não gosta de ser o centro das atenções, mas ao mesmo tempo, se não for lembrado, se não receber atenção, sofre e se sente inexistente.
+> #### _investe muita energia em ser reconhecido, ter um lugar no grupo, ser considerado e ser importante._
+
+Paradoxalmente, costuma ser solitário, silencioso e dócil. Ele prefere se esconder, <mark style="color:blue;">não gosta de ser o centro das atenções</mark>, mas ao mesmo tempo, se não for lembrado, se não receber atenção, sofre e se sente inexistente.
 
 Ele não quer estar no centro porque isso o assusta e não se sente bom o suficiente, mas
 
 > #### tem um desejo avassalador de ser visto, com a _ilusão de ser descoberto em sua invisibilidade_. Ao mesmo tempo, quando se vê, sente que há algo _profundamente inadequado_, errado ou sujo dentro dele
 
-que o faz sentir-se desconfortável e envergonhado.
+que o faz sentir-se <mark style="color:blue;">desconfortável e envergonhado</mark>.
 
 ***
 
 ### Autocobrança árdua <a href="#id-2bd4" id="id-2bd4"></a>
 
-O sentimento de vazio constante faz com que ele acredite que seus feitos e conhecimentos nunca são suficientes, pois está sempre se comparando ao exterior: “Preciso aprender mais”, “Não sou bom o bastante”.
+O <mark style="color:blue;">sentimento de vazio constante</mark> faz com que ele acredite que seus feitos e conhecimentos nunca são suficientes, pois está sempre se comparando ao exterior: “Preciso aprender mais”, “Não sou bom o bastante”.
 
-> #### Ele tem dificuldade em voltar o olhar para si mesmo e reconhecer seu próprio valor, preferindo medir-se pelos outros e pelas suas idealizações irreais.
+> #### _Ele tem dificuldade em voltar o olhar para si mesmo e reconhecer seu próprio valor, preferindo medir-se pelos outros e pelas suas idealizações irreais._
 
-Essa tendência à comparação incessante o faz sentir-se inferior e o leva a uma postura extremamente crítica consigo mesmo. Ele pode ser muito duro, tratando-se de forma punitiva. Socializando, intensifica esse comportamento, pois sua atenção está voltada para o mundo externo, onde ele busca referências que reforçam a sensação de que algo sempre está faltando em sua vida.
+Essa tendência à comparação incessante o faz sentir-se inferior e o leva a uma postura extremamente crítica consigo mesmo.&#x20;
+
+> #### _Ele pode ser muito duro consigo mesmo, tratando-se de forma punitiva._&#x20;
+
+Socializando, intensifica esse comportamento, pois sua atenção está voltada para o mundo externo, onde ele busca referências que reforçam a sensação de que algo sempre está faltando em sua vida.
+
+[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention") [#id-371d](vergonha-inveja-social.md#id-371d "mention")
 
 ***
 
-### Auto ódio - <a href="#id-371d" id="id-371d"></a>
+### Auto ódio <a href="#id-371d" id="id-371d"></a>
 
 A inveja surge ao se sentir inferior por não possuir o que acredita tornar o outro especial. Isso o devora por dentro, alimentando o auto ódio e uma constante sensação de desvalorização.
 
 > #### Ele se compara incessantemente, sempre se enxergando como inadequado diante do grupo, reforçando a ideia de que nunca é bom o suficiente.
+
+[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention")
 
 ***
 
@@ -316,6 +335,8 @@ apenas o objeto mudou, a mesma idealização do outro permanece e a expectativa 
 
 Esse personagem tem um ideal de amor romântico que se constrói aos poucos, imaginando uma conexão profunda, uma fusão completa de espírito, alma e corpo. No entanto, ele costuma ficar solteiro por muito tempo, pois ninguém parece corresponder a esse ideal tão elevado.
 
+[#id-9484](vergonha-inveja-social.md#id-9484 "mention") [#df4d](vergonha-inveja-social.md#df4d "mention") [#abb3](vergonha-inveja-social.md#abb3 "mention")
+
 ***
 
 ### Medo de vínculos <a href="#id-9484" id="id-9484"></a>
@@ -326,6 +347,8 @@ Para evitar reconhecer sua grande dependência emocional, adota o comportamento 
 
 Esse padrão também se reflete nas amizades, especialmente quando não há um parceiro. Ele busca, em uma amizade, alguém com quem possa estabelecer um pacto de lealdade, como uma forma de parceria para aliviar a sensação insuportável de solidão interna.
 
+[#medo-dos-outros](vergonha-inveja-social.md#medo-dos-outros "mention") [#df4d](vergonha-inveja-social.md#df4d "mention") [#id-1766](vergonha-inveja-social.md#id-1766 "mention") [#abb3](vergonha-inveja-social.md#abb3 "mention") [#fugindo-por-medo-da-rejeicao-e-frustracao](vergonha-inveja-social.md#fugindo-por-medo-da-rejeicao-e-frustracao "mention")
+
 ***
 
 ### Empatia e Profundidade Emocional <a href="#eba1" id="eba1"></a>
@@ -335,6 +358,8 @@ Ele é movido pelo sentimento dos outros. Ele não sente algo profundamente, a m
 > #### Sentir empatia é o que o faz sentir que está vivo, pois ele depende dessa troca emocional para combater a solidão e se sentir validado.
 
 Sem isso, ele se sente vazio e desconectado.
+
+[#id-7831](vergonha-inveja-social.md#id-7831 "mention") [#empatico](vergonha-inveja-social.md#empatico "mention") [#sempre-sedento-de-amor-e-contato-fisico](vergonha-inveja-social.md#sempre-sedento-de-amor-e-contato-fisico "mention")
 
 ***
 
@@ -359,6 +384,8 @@ algo que provavelmente nunca foi ensinado a ele.
 Em vez de pedir o que quer diretamente, ele se joga no sofrimento, na reclamação e até na doença, esperando que os outros o percebam e preencham o vazio que ele sente. Sua atitude é como um pedido indireto:
 
 > #### “Dê-me, por favor. Você não vê como estou sofrendo? Você não vê como me machuca?”
+
+[#id-558a](vergonha-inveja-social.md#id-558a "mention")
 
 ***
 
@@ -530,7 +557,7 @@ Enquanto não reconhece seu comportamento passivo-agressivo e invejoso, impede a
 
 ### Medo dos outros
 
-> #### Ele vê o mundo como caótico, imprevisível e ameaçador., que pode machucá-lo a qualquer momento. Isso o faz se sentir indefeso, vulnerável e exposto,
+> #### Ele vê o mundo como caótico, imprevisível e ameaçador, que pode machucá-lo a qualquer momento. Isso o faz se sentir indefeso, vulnerável e exposto,
 
 como se não tivesse uma pele para protegê-lo. Incapaz de encontrar uma saída,
 
