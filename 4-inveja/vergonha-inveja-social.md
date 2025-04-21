@@ -175,6 +175,8 @@ O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter 
 
 > #### Por trás da vergonha, esconde um desejo ardente por ser querido e aceito por todos, apresentando-se como suave, afetuoso, calmo e bom. Sem autovalidação interna, busca no olhar dos outros a confirmação de seu próprio valor.
 
+[#ec65](vergonha-inveja-social.md#ec65 "mention")
+
 ### A Delicadeza da Postura e da Expressão Corporal
 
 Se destaca por sua postura suave e delicada em comparação com outras personalidades. Geralmente, tem um corpo esbelto, com as costas curvadas para a frente e os ombros fechados, como se quisesse se encolher. Essa postura reflete seu desejo de não ser notado e de se esconder dos outros. Ao reprimir a raiva que sente por si mesmo, ele acaba encurvando o peito. Seu rosto é marcante, uma característica típica desse tipo, mas seu olhar é suave, cheio de emoção, e carrega um ar de súplica. Ao interagir com o mundo ao seu redor, ele revela tanto sua doçura quanto seu sofrimento, buscando despertar a bondade e o amor nas pessoas que o cercam.
@@ -189,7 +191,9 @@ No fundo, busca ser resgatado, cuidado e admirado. Mas também utiliza a rejeiç
 
 Ele é viciado na química da tristeza e melancolia, sentindo-as no peito como uma respiração profunda e sombria, ao mesmo tempo dolorosa e vital.&#x20;
 
-Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser menosprezado ([#id-87d1](vergonha-inveja-social.md#id-87d1 "mention") ). Pensa: "Mesmo que você faça tudo por mim, eu te amo porque te compreendo. E assim, apesar de tudo, sei perdoar e amar—sou bom, sou digno de ser amado." ([#id-9916](vergonha-inveja-social.md#id-9916 "mention"),[#id-0c06](vergonha-inveja-social.md#id-0c06 "mention"))
+Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser menosprezado. Pensa: "Mesmo que você faça tudo por mim, eu te amo porque te compreendo. E assim, apesar de tudo, sei perdoar e amar—sou bom, sou digno de ser amado."
+
+[#id-87d1](vergonha-inveja-social.md#id-87d1 "mention") [#id-9916](vergonha-inveja-social.md#id-9916 "mention") [#id-0c06](vergonha-inveja-social.md#id-0c06 "mention")
 
 ### Buscando validação em sua vulnerabilidade <a href="#fa2b" id="fa2b"></a>
 
@@ -206,6 +210,8 @@ como se cada gesto de atenção fosse uma gota que tenta preencher o poço sem f
 O E4 social vive como um refugiado emocional, sempre sedento de amor e contato físico, que representam a “água” que ele nunca teve o suficiente quando criança.
 
 > #### Carrega consigo a necessidade de um abraço que faltou ou foi negado na infância
+
+[#id-6d5b](vergonha-inveja-social.md#id-6d5b "mention") | [#id-4785](vergonha-inveja-social.md#id-4785 "mention")
 
 ***
 
@@ -249,7 +255,7 @@ duvidando da sinceridade do outro. A surpresa é grande, mas a desconfiança mai
 
 ***
 
-### **Prisioneiro de uma “falsa deficiência”**
+### **Se vendo como deficiente, indigno**
 
 O E4 social enxerga a vida por uma lente distorcida.
 
@@ -258,6 +264,8 @@ O E4 social enxerga a vida por uma lente distorcida.
 Ele transforma suas vivências em razões para se negar e se maltratar. Enquanto o E4 sexual luta e o de conservação suporta, o E4 social se afoga em desesperança.&#x20;
 
 > #### Ele não luta, não se resigna — apenas se consome.
+
+[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention") [#id-2bd4](vergonha-inveja-social.md#id-2bd4 "mention") [#id-535b](vergonha-inveja-social.md#id-535b "mention")
 
 ***
 
@@ -270,6 +278,8 @@ Assim como ele pode supervalorizar pessoas, pode igualmente desvalorizá-las. Qu
 assim pensa ele, desvalorizando a si mesmo e ao outro…&#x20;
 
 > #### _mas há, no fundo, <mark style="color:blue;">uma esperança de que ele realmente seja especial</mark>, digno de ser amado e admirado incondicionalmente._
+
+[#id-1db2](vergonha-inveja-social.md#id-1db2 "mention")
 
 ***
 
@@ -287,6 +297,8 @@ Ele não quer estar no centro porque isso o assusta e não se sente bom o sufici
 
 que o faz sentir-se <mark style="color:blue;">desconfortável e envergonhado</mark>.
 
+[#ec65](vergonha-inveja-social.md#ec65 "mention") | [#c62d](vergonha-inveja-social.md#c62d "mention")
+
 ***
 
 ### Autocobrança árdua <a href="#id-2bd4" id="id-2bd4"></a>
@@ -301,7 +313,7 @@ Essa tendência à comparação incessante o faz sentir-se inferior e o leva a u
 
 Socializando, intensifica esse comportamento, pois sua atenção está voltada para o mundo externo, onde ele busca referências que reforçam a sensação de que algo sempre está faltando em sua vida.
 
-[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention") [#id-371d](vergonha-inveja-social.md#id-371d "mention")
+[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention") [#id-371d](vergonha-inveja-social.md#id-371d "mention") [#se-vendo-como-deficiente-indigno](vergonha-inveja-social.md#se-vendo-como-deficiente-indigno "mention") [#id-535b](vergonha-inveja-social.md#id-535b "mention")
 
 ***
 
@@ -311,7 +323,7 @@ A inveja surge ao se sentir inferior por não possuir o que acredita tornar o ou
 
 > #### Ele se compara incessantemente, sempre se enxergando como inadequado diante do grupo, reforçando a ideia de que nunca é bom o suficiente.
 
-[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention")
+[#id-0d16](vergonha-inveja-social.md#id-0d16 "mention") [#se-vendo-como-deficiente-indigno](vergonha-inveja-social.md#se-vendo-como-deficiente-indigno "mention") [#id-535b](vergonha-inveja-social.md#id-535b "mention")
 
 ***
 
@@ -328,6 +340,8 @@ Seu sentimento de realização e valor pessoal está intimamente ligado ao que o
 > #### É como se uma parte dele ainda estivesse esperando o que sua mãe lhe dava na infância;
 
 apenas o objeto mudou, a mesma idealização do outro permanece e a expectativa de receber o que o fará satisfeito, preencher o sentimento de vazio e finalmente ser feliz.
+
+[#uma-forte-necessidade-por-aprovacao-social-reprimida](vergonha-inveja-social.md#uma-forte-necessidade-por-aprovacao-social-reprimida "mention")&#x20;
 
 ***
 
@@ -359,7 +373,7 @@ Ele é movido pelo sentimento dos outros. Ele não sente algo profundamente, a m
 
 Sem isso, ele se sente vazio e desconectado.
 
-[#id-7831](vergonha-inveja-social.md#id-7831 "mention") [#empatico](vergonha-inveja-social.md#empatico "mention") [#sempre-sedento-de-amor-e-contato-fisico](vergonha-inveja-social.md#sempre-sedento-de-amor-e-contato-fisico "mention")
+[#id-7831](vergonha-inveja-social.md#id-7831 "mention") [#empatico](vergonha-inveja-social.md#empatico "mention") [#sempre-sedento-de-amor-e-contato-fisico](vergonha-inveja-social.md#sempre-sedento-de-amor-e-contato-fisico "mention") [#id-6d5b](vergonha-inveja-social.md#id-6d5b "mention")
 
 ***
 
@@ -731,6 +745,8 @@ O E4 social preserva inconscientemente seu **“vazio interior”**, mesmo que i
 
 — esperando que talvez alguém venha “resgatá-lo”.
 
+[#fa2b](vergonha-inveja-social.md#fa2b "mention") | [#id-1ec8](vergonha-inveja-social.md#id-1ec8 "mention")
+
 ***
 
 ### Se permite ser maltratado <a href="#id-9916" id="id-9916"></a>
@@ -742,6 +758,8 @@ Assim como na infância, quando se culpava pelo abandono e acreditava ser a caus
 Com essa ideia fixa, ele aguenta anos em um relacionamento frustrante, esperando que algo mude por conta própria.
 
 > #### “Se eu te der tudo, se eu não me irritar, se eu aceitar seu tratamento inadequado, você não vai me deixar.”
+
+[#fa2b](vergonha-inveja-social.md#fa2b "mention")
 
 ***
 
@@ -809,6 +827,8 @@ enquanto o desejo por essa conexão absoluta inevitavelmente termina em decepç�
 
 Ele vive na espera do “grande amor”, acreditando que só então sua vida ganhará sentido, como se sua felicidade e realização dependessem inteiramente desse momento redentor.
 
+[#eba1](vergonha-inveja-social.md#eba1 "mention") |[#sempre-sedento-de-amor-e-contato-fisico](vergonha-inveja-social.md#sempre-sedento-de-amor-e-contato-fisico "mention") | [#id-7831](vergonha-inveja-social.md#id-7831 "mention") | [#empatico](vergonha-inveja-social.md#empatico "mention")
+
 ***
 
 ### Melancólico, acreditando que logo será abandonado <a href="#a6e5" id="a6e5"></a>
@@ -818,6 +838,8 @@ O medo de perder o amor traz uma melancolia que consome o presente.
 > #### A ideia de que “alguém melhor logo tomará meu lugar” impede de viver o momento e aproveitar o relacionamento.
 
 A dor da perda já é antecipada, como se fosse inevitável: “Mais cedo ou mais tarde, ele vai me deixar.” Quando a separação finalmente ocorre, não só é devastadora como também reforça a dor já carregada. Esse ciclo transforma o E4 social em alguém que se sente constantemente vítima, como se sua própria identidade dependesse de quanta dor e privação ele consegue suportar.
+
+[#ff57](vergonha-inveja-social.md#ff57 "mention") [#d18b](vergonha-inveja-social.md#d18b "mention")
 
 ***
 
@@ -829,6 +851,8 @@ Tem uma visão idealizada do relacionamento, onde ele cuida do outro em todos os
 
 Embora isso ajude a acalmar a ansiedade, muitas vezes faz com que ele sacrifique o papel de parceiro romântico, _**assumindo o papel de pai ou mãe**_.
 
+[#a6e5](vergonha-inveja-social.md#a6e5 "mention")
+
 ***
 
 ### Descontente em alcançar a estabilidade amorosa desejada <a href="#id-875b" id="id-875b"></a>
@@ -839,11 +863,13 @@ Em momentos de equilíbrio e segurança no relacionamento, o E4 social muitas ve
 
 e encontrar no outro uma certeza ou validação que, no fundo, ele não sente e talvez nunca consiga encontrar. Sua forte dependência emocional se revela ainda mais quando atinge um nível de intimidade e confiança, transformando o vínculo em um porto seguro que ele teme perder a qualquer custo.
 
+[#a6e5](vergonha-inveja-social.md#a6e5 "mention")
+
 ***
 
 ### Autoimagem de “parceiro perfeito insubstituível” <a href="#id-0c06" id="id-0c06"></a>
 
-Ele tende a se posicionar diante do parceiro como alguém único, quase como um sábio herói incomparável. Existe um _**lado narcisista**_ nisso, não de forma agressiva e explícita, mas de uma maneira sensível e sutil, alimentando uma autoilusão de ser alguém insubstituível para a outra pessoa, ainda que o relacionamento acabe._“Como o outro vai se esquecer de mim?”_
+Ele tende a se posicionar diante do parceiro como alguém único, quase como um sábio herói incomparável. Existe um _<mark style="color:green;">**lado narcisista**</mark>_ nisso, não de forma agressiva e explícita, mas de uma maneira sensível e sutil, alimentando uma autoilusão de ser alguém insubstituível para a outra pessoa, ainda que o relacionamento acabe._“Como o outro vai se esquecer de mim?”_
 
 > #### Ele trabalha para que o outro reconheça nele características e aspectos nunca encontrados em ninguém; há um investimento contínuo em se tornar insubstituível, em demonstrar seu próprio valor.
 
