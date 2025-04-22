@@ -943,7 +943,7 @@ sofre em silêncio e não tenta se defender. Indefeso, superestima seus erros e 
 
 Admira sinceramente pessoas que enxerga como superiores, tanto intelectualmente quanto em termos de caráter. Ele tende a abandonar seus próprios projetos para apoiar os de outras pessoas.&#x20;
 
-> #### _Sua baixa autoestima o leva a apoiar e valorizar quem considera mais capaz, <mark style="color:green;">esperando ser reconhecido por isso.</mark>_&#x20;
+> #### _Sua baixa autoestima o leva a apoiar e valorizar quem considera mais capaz, <mark style="color:green;">esperando ser reconhecido pelo seu apoio.</mark>_&#x20;
 
 No fundo, deseja validação e pertencimento por meio da admiração que sente.
 
