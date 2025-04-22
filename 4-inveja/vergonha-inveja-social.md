@@ -934,3 +934,23 @@ O medo de decepcionar a mãe na infância se transforma em um receio exagerado d
 sofre em silêncio e não tenta se defender. Indefeso, superestima seus erros e as consequências de seus atos, reforçando um ciclo de sofrimento.
 
 ***
+
+***
+
+***
+
+### Trocando seus projetos pelo dos outros
+
+Admira sinceramente pessoas que enxerga como superiores, tanto intelectualmente quanto em termos de caráter. Ele tende a abandonar seus próprios projetos para apoiar os de outras pessoas.&#x20;
+
+> #### _Sua baixa autoestima o leva a apoiar e valorizar quem considera mais capaz, <mark style="color:green;">esperando ser reconhecido por isso.</mark>_&#x20;
+
+No fundo, deseja validação e pertencimento por meio da admiração que sente.
+
+> #### _No entanto, se essas pessoas não correspondem às suas expectativas, ele pode se tornar indiretamente crítico e desvalorizador,_&#x20;
+
+especialmente quando julga o sucesso do outro como imerecido. Isso não eleva sua autoestima — pelo contrário,&#x20;
+
+> #### _gera raiva de si mesmo por mais uma vez “ter se enganado”,_&#x20;
+
+reforçando a sensação de incapacidade e alimentando sua autocrítica, ao invés de fortalecê-lo.
