@@ -485,14 +485,6 @@ mesmo que ele não peça por isso diretamente.
 
 ***
 
-### Uma fantasia de grandeza frustrada <a href="#e74a" id="e74a"></a>
-
-No E4 social, convivem dois opostos: um profundo sentimento de impotência e o desejo de ser especial.
-
-> #### Ele se fantasia em uma superioridade secreta, mas é sabotado pela sensação de impotência, caindo em autocrítica, vazio e sofrimento.
-
-***
-
 ### Espera ser reconhecido <a href="#c62d" id="c62d"></a>
 
 Quando conquista algo, evita se vangloriar, pois isso o envergonha e causa desconforto.
@@ -591,7 +583,7 @@ No fim, o E4 social acaba recriando ao seu redor situações que inevitavelmente
 
 No E4 social, o masoquismo se manifesta com mais intensidade. O paradoxo está em se machucar ou causar dor física a si mesmo como forma de aliviar a dor emocional, encontrar algum prazer distorcido ou apenas sentir que existe. Acostumado às punições de sua mãe, ele continua o ciclo, infligindo castigos a si mesmo.
 
-> #### “Eu me decepcionei, tenho vergonha de mim!”,
+> #### _“Eu me decepcionei, tenho vergonha de mim!”,_
 
 ***
 
@@ -599,11 +591,11 @@ No E4 social, o masoquismo se manifesta com mais intensidade. O paradoxo está e
 
 O social E4 cria um ideal inalcançável de si mesmo, fruto da sensação de nunca ter sido bom o suficiente para satisfazer as expectativas maternas. Isso o leva à frustração constante e ao sofrimento emocional, buscando, por vezes, a dor física como forma de punição ou alívio.
 
-> #### Ele se coloca em situações autodestrutivas, explorando a linha entre dor e prazer, como se o sofrimento validasse sua existência.
+> #### _Ele se coloca em situações autodestrutivas, explorando a linha entre dor e prazer, como se o sofrimento validasse sua existência._
 
 Nos casos extremos, o ciclo pode culminar em doenças ou até em gestos de suicídio,
 
-> #### como uma vingança silenciosa contra aqueles que ignoraram sua dor e necessidades: “Olhem para mim, vejam o que fizeram.” É uma tentativa final de ser notado e compreendido.
+> #### _como uma vingança silenciosa contra aqueles que ignoraram sua dor e necessidades: “Olhem para mim, vejam o que fizeram.” É uma tentativa final de ser notado e compreendido._
 
 repete internamente, enquanto a angústia cresce. Ele acredita que só poderá se livrar dessa dor quando for “punido” o suficiente, perpetuando assim um ciclo de autopunição e sofrimento.
 
@@ -611,15 +603,35 @@ repete internamente, enquanto a angústia cresce. Ele acredita que só poderá s
 
 ## Parte 4: Fantasia <a href="#df7f" id="df7f"></a>
 
+### Fantasias proporcionadas por uma hiper emocionalidade
+
+No tipo social E4, a fantasia está profundamente entrelaçada com o aspecto emocional. Ela serve como ponte para acessar e intensificar emoções — positivas ou negativas. Muitas vezes,&#x20;
+
+> #### _fantasias agradáveis são criadas para compensar as emoções negativas da vida real._&#x20;
+
+No entanto, essas fantasias nem sempre são positivas: com a mesma facilidade, o E4 acessa cenários negativos, que podem ser nocivos. Nesse caso,&#x20;
+
+> #### _fantasiar tragédias ou rejeições funciona como uma forma de “preparação” emocional para possíveis eventos difíceis._
+
+***
+
 ### Fantasia como refúgio e ilusão de controle <a href="#f6a5" id="f6a5"></a>
 
 Para o E4 social, a fantasia surge como uma _**fuga da realidade**_ insuportável ou frustrante.
 
-> #### Desde a infância, ele se retira mentalmente para mundos imaginários onde é o protagonista, sentindo-se importante e protegido.
+> #### _Desde a infância, ele se retira mentalmente para mundos imaginários onde é o protagonista, sentindo-se importante e protegido._
 
 Reinventar histórias ou distorcer fatos se torna uma forma de aliviar a dor e ganhar uma sensação temporária de controle.
 
-> #### No entanto, essa “tábua de salvação” pode se transformar em prisão, afastando-o da ação concreta e da vida real.
+> #### _No entanto, essa “tábua de salvação” pode se transformar em prisão, afastando-o da ação concreta e da vida real._
+
+***
+
+### Uma fantasia frustrada de grandeza <a href="#e74a" id="e74a"></a>
+
+No E4 social, convivem dois opostos: um profundo sentimento de impotência e o desejo de ser especial.
+
+> #### _Ele se fantasia em uma superioridade secreta, mas é sabotado pela sensação de impotência, caindo em autocrítica, vazio e sofrimento._
 
 ***
 
@@ -635,9 +647,13 @@ Ele constrói cenários perfeitos — encontros mágicos, viagens românticas, u
 
 ***
 
-### Fantasia e timidez patológica <a href="#id-9567" id="id-9567"></a>
+### Fantasias proporcionadas por uma timidez patológica <a href="#id-9567" id="id-9567"></a>
 
-Na ausência de relacionamentos reais, a fantasia se torna um escape ainda mais intenso. Um simples olhar ou gesto pode dar início a grandes histórias de amor romântico e impossível, que funcionam como _**um alívio para a solidão e um disfarce para sua timidez paralisante**_. Esse ciclo reforça a dificuldade em lidar com situações concretas, especialmente no amor. O caminho para superar isso envolve transformar a imaginação em algo construtivo, usando-a para inspirar ações reais, e não como uma fuga permanente.
+Na ausência de relacionamentos reais, a fantasia se torna um escape ainda mais intenso.&#x20;
+
+> #### _Um simples olhar ou gesto pode dar início a grandes histórias de amor romântico e impossível, que funcionam como <mark style="color:green;">**um alívio para a solidão e um disfarce para sua timidez paralisante**</mark>. Esse ciclo reforça a dificuldade em lidar com situações concretas, especialmente no amor._&#x20;
+
+O caminho para superar isso envolve transformar a imaginação em algo construtivo, usando-a para inspirar ações reais, e não como uma fuga permanente.
 
 ***
 
