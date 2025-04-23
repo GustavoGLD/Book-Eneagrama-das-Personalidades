@@ -53,7 +53,7 @@ Quando criança, o pai corrigia muito suas ações ou até o criticava com frequ
 
 ### Compreensivo
 
-O medo do abandono e do conflito combinados com sua forte empatia tornam-no tolerante e benevolente para os motivos e razões dos outros. Justifica as ações dos outros mesmo em situações em que é humilhado ou não é visto.
+O medo do abandono e do conflito combinados com sua forte empatia tornam-o tolerante e benevolente para os motivos e razões dos outros. Justifica as ações dos outros mesmo em situações em que é humilhado ou não é visto.
 
 Tem dificuldades na separação. Quando criança, aprendeu a não impor sua opinião ou deixar claro o que quer, porque isso o distanciaria dos pais. Assim, ele aprendeu a justificar seus pais e compreendê-los.
 
@@ -253,6 +253,8 @@ duvidando da sinceridade do outro. A surpresa é grande, mas a desconfiança mai
 
 > "como pode alguém realmente gostar de mim, se nem eu mesmo me aceita completamente?"
 
+[#trocando-seus-projetos-pelo-dos-outros](vergonha-inveja-social.md#trocando-seus-projetos-pelo-dos-outros "mention")
+
 ***
 
 ### **Se vendo como deficiente, indigno**
@@ -297,7 +299,7 @@ Ele não quer estar no centro porque isso o assusta e não se sente bom o sufici
 
 que o faz sentir-se <mark style="color:blue;">desconfortável e envergonhado</mark>.
 
-[#ec65](vergonha-inveja-social.md#ec65 "mention") | [#c62d](vergonha-inveja-social.md#c62d "mention")
+[#trocando-seus-projetos-pelo-dos-outros](vergonha-inveja-social.md#trocando-seus-projetos-pelo-dos-outros "mention") | [#ec65](vergonha-inveja-social.md#ec65 "mention") | [#c62d](vergonha-inveja-social.md#c62d "mention")
 
 ***
 
@@ -327,7 +329,7 @@ A inveja surge ao se sentir inferior por não possuir o que acredita tornar o ou
 
 ***
 
-### Expectativas infantis por admiração e reconhecimento - <a href="#ec65" id="ec65"></a>
+### Expectativas infantis por admiração e reconhecimento <a href="#ec65" id="ec65"></a>
 
 Busca incessantemente reconhecimento, tanto do seu grupo quanto de estranhos, acreditando que sua validade depende do olhar dos outros:
 
@@ -947,10 +949,12 @@ Admira sinceramente pessoas que enxerga como superiores, tanto intelectualmente 
 
 No fundo, deseja validação e pertencimento por meio da admiração que sente.
 
-> #### _No entanto, se essas pessoas não correspondem às suas expectativas, ele pode se tornar indiretamente crítico e desvalorizador,_&#x20;
+> #### _No entanto, se essas pessoas não correspondem às suas expectativas, ele pode se tornar indiretamente <mark style="color:green;">crítico e desvalorizador</mark>,_&#x20;
 
 especialmente quando julga o sucesso do outro como imerecido. Isso não eleva sua autoestima — pelo contrário,&#x20;
 
 > #### _gera raiva de si mesmo por mais uma vez “ter se enganado”,_&#x20;
 
 reforçando a sensação de incapacidade e alimentando sua autocrítica, ao invés de fortalecê-lo.
+
+[#se-vendo-como-desinteressante](vergonha-inveja-social.md#se-vendo-como-desinteressante "mention") | [#ec65](vergonha-inveja-social.md#ec65 "mention")
