@@ -423,28 +423,6 @@ Tem uma tendência automática de desistir antes mesmo de tentar, convencido de 
 
 ***
 
-### Autoprivação de prazer <a href="#id-535b" id="id-535b"></a>
-
-Desde a infância, o E4 social internaliza a ideia de que o prazer vem sempre acompanhado de punição ou dor. Ele evita se permitir sentir prazer, com medo de que seja passageiro ou ilusório. Ao mesmo tempo,
-
-> #### aprende a acreditar que o sofrimento pode atrair atenção e suprir suas carências.
-
-Assim, ele entra em um ciclo vicioso: sofre na esperança de ser recompensado com felicidade, mas teme que, se parar de sofrer, perderá qualquer chance de receber o que precisa para ser feliz.
-
-***
-
-### Relação ambivalente com a comida <a href="#id-670f" id="id-670f"></a>
-
-Para o E4 social, a comida é mais que nutrição: é palco de um drama emocional. Na infância, comer vira um campo de batalha com a mãe — o prazer inicial da comida se transforma em uma forma de resistência e manipulação. Ele rejeita, acumula, ou até vomita a comida, não porque não quer comer, mas porque é a única arma que tem para prender a atenção da mãe e expressar seu ressentimento. Comer deixa de ser prazer e vira um tormento, refletindo sua luta com dependência e autonomia.
-
-Na vida adulta, essa relação com a comida ressurge em crises emocionais, como o fim de um relacionamento. A fome desaparece, esmagada pela avalanche de emoções.
-
-> #### Não come, pois sente que o vazio físico é preenchido pelo peso da dor emocional, como se viver essa intensidade fosse mais importante que cuidar do corpo.
-
-A comida, rejeitada ou esquecida, se torna o reflexo perfeito de seu conflito interno: querer ser independente, mas ainda estar preso ao desejo de cuidado e proteção.
-
-***
-
 ### Não se expressa, se limitando a posição de vítima <a href="#id-2007" id="id-2007"></a>
 
 Vive refém do medo do abandono, sacrificando sua liberdade e espontaneidade.
@@ -718,6 +696,48 @@ Ele não se sente forte o bastante para se defender e também não acredita que 
 > #### No fundo, essa sensibilidade é uma maneira de lidar com sua própria fragilidade.
 
 ***
+
+### Sentimento de solidão constante
+
+A sensação de solidão é constante, mesmo que o E4 não esteja isolado ou tenha uma vida social ativa. Ele se sente como um estranho no mundo — alguém rejeitado, excluído, marcado por uma ferida sem esperança, mais profunda e única do que qualquer outra.
+
+***
+
+### Medo constante
+
+O medo é, sem dúvida, uma emoção familiar, especialmente diante da possibilidade de exposição social. Ainda que não se conecte facilmente a esse sentimento — muitas vezes o evita ou o esconde de si mesmo em seu isolamento —, o medo está sempre presente, tingido por uma sensação de desesperança e pela impressão de que não há opções ou saídas.
+
+***
+
+### Autoprivação de prazer <a href="#id-535b" id="id-535b"></a>
+
+Desde a infância,&#x20;
+
+> #### _o E4 social internaliza a ideia de que o prazer vem sempre acompanhado de punição ou dor._&#x20;
+
+Ele evita se permitir sentir prazer, com medo de que seja passageiro ou ilusório. Não se trata apenas de não se permitir momentos de prazer — porque eles existem —, mas de não conseguir permanecer neles, de não conseguir vivê-los como um estado duradouro, com medo de que seja passageiro ou ilusório:
+
+> A satisfação é sempre interrompida pela ideia persistente e irracional de que “isso não é para mim, isso não pode durar”.&#x20;
+
+Ao mesmo tempo,
+
+> #### aprende a acreditar que o sofrimento pode atrair atenção e suprir suas carências. Permitir-se sentir alegria ou satisfação significaria abandonar a máscara de sofrimento
+
+Assim, ele entra em um ciclo vicioso: sofre na esperança de ser recompensado com felicidade, mas teme que, se parar de sofrer, perderá qualquer chance de receber o que precisa para ser feliz.
+
+[#id-2007](vergonha-inveja-social.md#id-2007 "mention")
+
+***
+
+### Relação ambivalente com a comida <a href="#id-670f" id="id-670f"></a>
+
+Para o E4 social, a comida é mais que nutrição: é palco de um drama emocional. Na infância, comer vira um campo de batalha com a mãe — o prazer inicial da comida se transforma em uma forma de resistência e manipulação. Ele rejeita, acumula, ou até vomita a comida, não porque não quer comer, mas porque é a única arma que tem para prender a atenção da mãe e expressar seu ressentimento. Comer deixa de ser prazer e vira um tormento, refletindo sua luta com dependência e autonomia.
+
+Na vida adulta, essa relação com a comida ressurge em crises emocionais, como o fim de um relacionamento. A fome desaparece, esmagada pela avalanche de emoções.
+
+> #### Não come, pois sente que o vazio físico é preenchido pelo peso da dor emocional, como se viver essa intensidade fosse mais importante que cuidar do corpo.
+
+A comida, rejeitada ou esquecida, se torna o reflexo perfeito de seu conflito interno: querer ser independente, mas ainda estar preso ao desejo de cuidado e proteção.
 
 ## Parte 5: Dependência <a href="#id-39e1" id="id-39e1"></a>
 
