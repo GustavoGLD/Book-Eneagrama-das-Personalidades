@@ -177,23 +177,27 @@ O E4 Social é o subtipo "Social" mais difícil de se reconhecer. Apesar de ter 
 
 [#ec65](vergonha-inveja-social.md#ec65 "mention")
 
+***
+
 ### A Delicadeza da Postura e da Expressão Corporal
 
 Se destaca por sua postura suave e delicada em comparação com outras personalidades. Geralmente, tem um corpo esbelto, com as costas curvadas para a frente e os ombros fechados, como se quisesse se encolher. Essa postura reflete seu desejo de não ser notado e de se esconder dos outros. Ao reprimir a raiva que sente por si mesmo, ele acaba encurvando o peito. Seu rosto é marcante, uma característica típica desse tipo, mas seu olhar é suave, cheio de emoção, e carrega um ar de súplica. Ao interagir com o mundo ao seu redor, ele revela tanto sua doçura quanto seu sofrimento, buscando despertar a bondade e o amor nas pessoas que o cercam.
+
+***
 
 ### Apego ao sofrimento
 
 A vergonha o mantém preso à sensação de inferioridade e vitimização, fazendo com que evite a rejeição ao se afastar antes mesmo de receber "não".&#x20;
 
-Extremamente sensível, desiste facilmente diante de qualquer recusa e se refugia na falta e na desconfiança em si mesmo.&#x20;
+<mark style="color:green;">Extremamente sensível</mark>, desiste facilmente diante de qualquer recusa e se refugia na falta e na desconfiança em si mesmo.&#x20;
 
-No fundo, busca ser resgatado, cuidado e admirado. Mas também utiliza a rejeição como muleta para continuar sendo uma vítima — para ele, apenas sendo vítima é possível ser resgastado, cuidado e amado.
+> #### _No fundo, busca ser resgatado, cuidado e admirado. Mas também utiliza a rejeição como muleta para continuar sendo uma vítima — para ele, apenas sendo vítima é possível ser resgastado, cuidado e amado._
 
 Ele é viciado na química da tristeza e melancolia, sentindo-as no peito como uma respiração profunda e sombria, ao mesmo tempo dolorosa e vital.&#x20;
 
-Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser menosprezado. Pensa: "Mesmo que você faça tudo por mim, eu te amo porque te compreendo. E assim, apesar de tudo, sei perdoar e amar—sou bom, sou digno de ser amado."
+> #### _Ele conhece um amor que se mistura ao sofrimento, pois está acostumado a ser menosprezado. Pensa: "Mesmo que você faça tudo por mim, eu te amo porque te compreendo. E assim, apesar de tudo, sei perdoar e amar — sou bom, sou digno de ser amado."_
 
-[#id-87d1](vergonha-inveja-social.md#id-87d1 "mention") [#id-9916](vergonha-inveja-social.md#id-9916 "mention") [#id-0c06](vergonha-inveja-social.md#id-0c06 "mention")
+[#id-0c06](vergonha-inveja-social.md#id-0c06 "mention") | [#id-87d1](vergonha-inveja-social.md#id-87d1 "mention") | [#id-9916](vergonha-inveja-social.md#id-9916 "mention")&#x20;
 
 ### Buscando validação em sua vulnerabilidade <a href="#fa2b" id="fa2b"></a>
 
@@ -347,14 +351,6 @@ apenas o objeto mudou, a mesma idealização do outro permanece e a expectativa 
 
 ***
 
-### Solteirice prolongada por altos ideais românticos <a href="#id-1766" id="id-1766"></a>
-
-Esse personagem tem um ideal de amor romântico que se constrói aos poucos, imaginando uma conexão profunda, uma fusão completa de espírito, alma e corpo. No entanto, ele costuma ficar solteiro por muito tempo, pois ninguém parece corresponder a esse ideal tão elevado.
-
-[#id-9484](vergonha-inveja-social.md#id-9484 "mention") [#df4d](vergonha-inveja-social.md#df4d "mention") [#abb3](vergonha-inveja-social.md#abb3 "mention")
-
-***
-
 ### Medo de vínculos <a href="#id-9484" id="id-9484"></a>
 
 Para evitar reconhecer sua grande dependência emocional, adota o comportamento oposto: a **contra dependência**.
@@ -412,14 +408,6 @@ Quando o outro percebe sua fraqueza, ele sente vergonha.
 > Ele se envergonha de ser dependente, de não ser capaz de cuidar de si mesmo e de precisar do outro.
 
 Ver alguém sentir compaixão por ele só reforça esse desconforto. No fundo, ele se sente humilhado por ser visto como frágil e desamparado.
-
-***
-
-### Desiste antes de começar <a href="#fd10" id="fd10"></a>
-
-Tem uma tendência automática de desistir antes mesmo de tentar, convencido de que será um desastre. Ele avisa aos outros sobre sua suposta incapacidade, mas acaba cedendo ao desejo de agradar, pertencer e atender às expectativas alheias. Após muitas críticas internas, ele se esforça para fazer o melhor possível. Quando termina e recebe elogios, no entanto, minimiza qualquer reconhecimento.
-
-> #### Ele se sente desconfortável com o mérito, como se estivesse “roubando” algo que não merece. Na sua mente, nunca está realmente satisfeito com o que fez.
 
 ***
 
@@ -499,43 +487,11 @@ Em alguns casos, a doença também funciona como uma _**vingança disfarçada**_
 
 ***
 
-### Fugindo de relações casuais e/ou superficias <a href="#abb3" id="abb3"></a>
-
-O E4 social busca amizades que seja íntimas, intensas e especiais.
-
-> #### Essa aversão às conexões casuais está ligada à sua dificuldade em ser espontâneo, resultado do seu medo de ser julgado, limitando-se a contextos onde se sente completamente seguro.
-
-Relações casuais ou onde sente que pode ser exposto são evitadas, reservando sua vulnerabilidade apenas para quem realmente confia.
-
-***
-
 ### Contruindo uma autoidentidade na melancolia <a href="#c0ab" id="c0ab"></a>
 
 A trágica imagem reflete o senso de identidade que o social E4 construiu, sua possibilidade de existir reside no sofrimento por algo que perdeu: amor, o outro, a própria vida.
 
 > #### É como se ele constantemente apresentasse ao mundo o personagem de alguém abandonado, triste e solitário.
-
-***
-
-### Não consciente do quanto suga dos outros <a href="#dd29" id="dd29"></a>
-
-> #### Acredita que sua inferioridade o torna incapaz de prejudicar os outros, mas não percebe que seu autoboicote os afeta indiretamente.
-
-***
-
-### Sutil crueldade em valorizar e desvalorizar o outro <a href="#id-1db2" id="id-1db2"></a>
-
-Sem plena consciência, age com crueldade sutil ao negar o valor ou amor do outro, destruindo laços com mensagens implícitas de desconfiança.
-
-> #### Oscila entre idealizar e menosprezar, deixando os outros inseguros e feridos. Esse ciclo, muitas vezes inconsciente, acaba ferindo e desgastando aqueles que tentam se conectar com ele.
-
-***
-
-### É preciso reconhecer a própria inveja e agressividade <a href="#id-1c07" id="id-1c07"></a>
-
-Enquanto não reconhece seu comportamento passivo-agressivo e invejoso, impede a si mesmo de crescer e, secretamente, tenta limitar os outros: O que não permite para si, também não quer para ninguém.
-
-> #### Aceitar sua inveja e assumir suas responsabilidades é essencial para parar de sobrecarregar os outros, deixar de se comparar ou de se sentir impotente, e começar a construir algo com seus próprios recursos.
 
 ***
 
@@ -578,6 +534,66 @@ Nos casos extremos, o ciclo pode culminar em doenças ou até em gestos de suic�
 repete internamente, enquanto a angústia cresce. Ele acredita que só poderá se livrar dessa dor quando for “punido” o suficiente, perpetuando assim um ciclo de autopunição e sofrimento.
 
 ***
+
+### Trocando seus projetos pelo dos outros
+
+Admira sinceramente pessoas que enxerga como superiores, tanto intelectualmente quanto em termos de caráter. Ele tende a abandonar seus próprios projetos para apoiar os de outras pessoas.&#x20;
+
+> #### _Sua baixa autoestima o leva a apoiar e valorizar quem considera mais capaz, <mark style="color:green;">esperando ser reconhecido pelo seu apoio.</mark>_&#x20;
+
+No fundo, deseja validação e pertencimento por meio da admiração que sente.
+
+> #### _No entanto, se essas pessoas não correspondem às suas expectativas, ele pode se tornar indiretamente <mark style="color:green;">crítico e desvalorizador</mark>,_&#x20;
+
+especialmente quando julga o sucesso do outro como imerecido. Isso não eleva sua autoestima — pelo contrário,&#x20;
+
+> #### _gera raiva de si mesmo por mais uma vez “ter se enganado”,_&#x20;
+
+reforçando a sensação de incapacidade e alimentando sua autocrítica, ao invés de fortalecê-lo.
+
+[#se-vendo-como-desinteressante](vergonha-inveja-social.md#se-vendo-como-desinteressante "mention") | [#ec65](vergonha-inveja-social.md#ec65 "mention")
+
+***
+
+### Relação ambivalente com a comida <a href="#id-670f" id="id-670f"></a>
+
+Para o E4 social, a comida é mais que nutrição: é palco de um drama emocional. Na infância, comer vira um campo de batalha com a mãe — o prazer inicial da comida se transforma em uma forma de resistência e manipulação. Ele rejeita, acumula, ou até vomita a comida, não porque não quer comer, mas porque é a única arma que tem para prender a atenção da mãe e expressar seu ressentimento. Comer deixa de ser prazer e vira um tormento, refletindo sua luta com dependência e autonomia.
+
+Na vida adulta, essa relação com a comida ressurge em crises emocionais, como o fim de um relacionamento. A fome desaparece, esmagada pela avalanche de emoções.
+
+> #### Não come, pois sente que o vazio físico é preenchido pelo peso da dor emocional, como se viver essa intensidade fosse mais importante que cuidar do corpo.
+
+A comida, rejeitada ou esquecida, se torna o reflexo perfeito de seu conflito interno: querer ser independente, mas ainda estar preso ao desejo de cuidado e proteção.
+
+***
+
+### Não consciente do quanto suga dos outros <a href="#dd29" id="dd29"></a>
+
+> #### Acredita que sua inferioridade o torna incapaz de prejudicar os outros, mas não percebe que seu autoboicote os afeta indiretamente.
+
+***
+
+### Sutil crueldade em valorizar e desvalorizar o outro <a href="#id-1db2" id="id-1db2"></a>
+
+Sem plena consciência, age com crueldade sutil ao negar o valor ou amor do outro, destruindo laços com mensagens implícitas de desconfiança.
+
+> #### Oscila entre idealizar e menosprezar, deixando os outros inseguros e feridos. Esse ciclo, muitas vezes inconsciente, acaba ferindo e desgastando aqueles que tentam se conectar com ele.
+
+***
+
+### É preciso reconhecer a própria inveja e agressividade <a href="#id-1c07" id="id-1c07"></a>
+
+Enquanto não reconhece seu comportamento passivo-agressivo e invejoso, impede a si mesmo de crescer e, secretamente, tenta limitar os outros: O que não permite para si, também não quer para ninguém.
+
+> #### Aceitar sua inveja e assumir suas responsabilidades é essencial para parar de sobrecarregar os outros, deixar de se comparar ou de se sentir impotente, e começar a construir algo com seus próprios recursos.
+
+***
+
+### Desiste antes de começar <a href="#fd10" id="fd10"></a>
+
+Tem uma tendência automática de desistir antes mesmo de tentar, convencido de que será um desastre. Ele avisa aos outros sobre sua suposta incapacidade, mas acaba cedendo ao desejo de agradar, pertencer e atender às expectativas alheias. Após muitas críticas internas, ele se esforça para fazer o melhor possível. Quando termina e recebe elogios, no entanto, minimiza qualquer reconhecimento.
+
+> #### Ele se sente desconfortável com o mérito, como se estivesse “roubando” algo que não merece. Na sua mente, nunca está realmente satisfeito com o que fez.
 
 ## Parte 4: Fantasia <a href="#df7f" id="df7f"></a>
 
@@ -727,18 +743,6 @@ Assim, ele entra em um ciclo vicioso: sofre na esperança de ser recompensado co
 
 [#id-2007](vergonha-inveja-social.md#id-2007 "mention")
 
-***
-
-### Relação ambivalente com a comida <a href="#id-670f" id="id-670f"></a>
-
-Para o E4 social, a comida é mais que nutrição: é palco de um drama emocional. Na infância, comer vira um campo de batalha com a mãe — o prazer inicial da comida se transforma em uma forma de resistência e manipulação. Ele rejeita, acumula, ou até vomita a comida, não porque não quer comer, mas porque é a única arma que tem para prender a atenção da mãe e expressar seu ressentimento. Comer deixa de ser prazer e vira um tormento, refletindo sua luta com dependência e autonomia.
-
-Na vida adulta, essa relação com a comida ressurge em crises emocionais, como o fim de um relacionamento. A fome desaparece, esmagada pela avalanche de emoções.
-
-> #### Não come, pois sente que o vazio físico é preenchido pelo peso da dor emocional, como se viver essa intensidade fosse mais importante que cuidar do corpo.
-
-A comida, rejeitada ou esquecida, se torna o reflexo perfeito de seu conflito interno: querer ser independente, mas ainda estar preso ao desejo de cuidado e proteção.
-
 ## Parte 5: Dependência <a href="#id-39e1" id="id-39e1"></a>
 
 ### Se vê impotente <a href="#c02c" id="c02c"></a>
@@ -859,6 +863,14 @@ enquanto o desejo por essa conexão absoluta inevitavelmente termina em decepç�
 
 ***
 
+### Solteirice prolongada por altos ideais românticos <a href="#id-1766" id="id-1766"></a>
+
+Esse personagem tem um ideal de amor romântico que se constrói aos poucos, imaginando uma conexão profunda, uma fusão completa de espírito, alma e corpo. No entanto, ele costuma ficar solteiro por muito tempo, pois ninguém parece corresponder a esse ideal tão elevado.
+
+[#id-9484](vergonha-inveja-social.md#id-9484 "mention") [#df4d](vergonha-inveja-social.md#df4d "mention") [#abb3](vergonha-inveja-social.md#abb3 "mention")
+
+***
+
 ### O amor como um sentido da vida <a href="#id-6d5b" id="id-6d5b"></a>
 
 > #### Para ele, o amor é o centro da sua existência; sem ele, a vida parece vazia e sem propósito.
@@ -959,6 +971,16 @@ O objetivo do amor físico passa a ser _**evitar o abandono**_, garantindo que o
 
 ***
 
+### Fugindo de relações casuais e/ou superficias <a href="#abb3" id="abb3"></a>
+
+O E4 social busca amizades que seja íntimas, intensas e especiais.
+
+> #### Essa aversão às conexões casuais está ligada à sua dificuldade em ser espontâneo, resultado do seu medo de ser julgado, limitando-se a contextos onde se sente completamente seguro.
+
+Relações casuais ou onde sente que pode ser exposto são evitadas, reservando sua vulnerabilidade apenas para quem realmente confia.
+
+***
+
 ### Constante sentimento de culpa
 
 Esse tipo carrega uma culpa constante,&#x20;
@@ -970,27 +992,3 @@ O medo de decepcionar a mãe na infância se transforma em um receio exagerado d
 > #### A culpa também se torna uma forma de autopunição. Ele acredita merecer o castigo,&#x20;
 
 sofre em silêncio e não tenta se defender. Indefeso, superestima seus erros e as consequências de seus atos, reforçando um ciclo de sofrimento.
-
-***
-
-***
-
-***
-
-### Trocando seus projetos pelo dos outros
-
-Admira sinceramente pessoas que enxerga como superiores, tanto intelectualmente quanto em termos de caráter. Ele tende a abandonar seus próprios projetos para apoiar os de outras pessoas.&#x20;
-
-> #### _Sua baixa autoestima o leva a apoiar e valorizar quem considera mais capaz, <mark style="color:green;">esperando ser reconhecido pelo seu apoio.</mark>_&#x20;
-
-No fundo, deseja validação e pertencimento por meio da admiração que sente.
-
-> #### _No entanto, se essas pessoas não correspondem às suas expectativas, ele pode se tornar indiretamente <mark style="color:green;">crítico e desvalorizador</mark>,_&#x20;
-
-especialmente quando julga o sucesso do outro como imerecido. Isso não eleva sua autoestima — pelo contrário,&#x20;
-
-> #### _gera raiva de si mesmo por mais uma vez “ter se enganado”,_&#x20;
-
-reforçando a sensação de incapacidade e alimentando sua autocrítica, ao invés de fortalecê-lo.
-
-[#se-vendo-como-desinteressante](vergonha-inveja-social.md#se-vendo-como-desinteressante "mention") | [#ec65](vergonha-inveja-social.md#ec65 "mention")
