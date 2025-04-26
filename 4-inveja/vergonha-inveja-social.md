@@ -849,7 +849,21 @@ Ele tem dificuldade de expressar suas verdadeiras necessidades e, como resultado
 
 > #### No fundo, deseja uma pessoa sensível que perceba sua fragilidade e o acolha, como se fosse uma criança. Esse é o desejo mais profundo dele, mesmo que ele tente escondê-lo por vergonha.
 
+***
+
+### Deseja profundamente ser independente
+
 Quando ele encontra alguém que cuida de tudo — das tarefas, dos problemas, que dá atenção e carinho, que o abraça antes mesmo que ele peça — , ele se sente protegido e seguro. Dessa forma, consegue acalmar a ansiedade de enfrentar um mundo que percebe como hostil e desconhecido.
+
+Por fim, ele sente que pode desligar a mente e descansar, já que outra pessoa está assumindo o controle.&#x20;
+
+> #### _Mas dentro dele convivem duas forças: de um lado, o desejo profundo de se sentir protegido, guiado e seguro; de outro, a necessidade absoluta de ser independente, livre para tomar suas próprias decisões._
+
+Ele não suporta que alguém o trate como sua mãe fazia — como um fantoche, sem direito de escolher ou agir — e está muito acostumado a confiar apenas em si mesmo. Assim, sem confiar de verdade nos outros, ele precisa manter o controle, preferindo fazer tudo sozinho a depender de alguém em quem não acredita. Mesmo sabendo que poderia contar com outras pessoas, a desconfiança é maior.
+
+Dentro dele existe uma contradição: a necessidade de amor e proteção, e ao mesmo tempo um desejo forte de liberdade e autonomia.&#x20;
+
+> #### _É como uma criança que começa a andar: quer saber que a mãe está ali para apoiá-la, mas não quer que segurem sua mão ou a impeçam de caminhar sozinha._
 
 ***
 
@@ -886,6 +900,26 @@ A ferida central do E4 social está na frustração pelo amor materno idealizado
 enquanto o desejo por essa conexão absoluta inevitavelmente termina em decepção.
 
 > #### _Sem perceber, ele projeta no parceiro a expectativa de um amor que jamais poderá ser plenamente correspondido, perpetuando o ciclo de dependência emocional._
+
+***
+
+### Buscando lealdade absoluta do outro
+
+> #### A lealdade absoluta do amigo é fundamental para conter o medo do abandono.&#x20;
+
+O E4 social precisa sentir que pode contar com o outro a qualquer momento.&#x20;
+
+> #### _Assim como nos relacionamentos amorosos, ele busca na amizade fusão, amor incondicional, proteção e total confiança._&#x20;
+
+Relações superficiais, amizades leves e encontros casuais não fazem sentido para ele. A amizade precisa ser um lar — um ninho que o faça sentir-se seguro, protegido do mundo e verdadeiramente compreendido.
+
+> #### _Justamente por buscar um nível tão alto nos relacionamentos, o E4 social é muito intolerante com os defeitos do outro. Qualquer pequeno distanciamento pode ser vivido como uma decepção ou até uma traição._&#x20;
+
+Para ele, a amizade é uma âncora — um refúgio contra a solidão e um substituto para o amor e o cuidado materno. Sua esperança de salvação está no sonho de encontrar alguém especial, quase mágico, que o resgate com um amor incondicional.
+
+> #### _Quando o "príncipe" ou a "princesa" finalmente chega e o ama profundamente, surge o paradoxo: o E4 Social não consegue acreditar que isso seja real e começa a desvalorizá-lo._&#x20;
+
+O sentimento de não ser digno de amor é tão forte que ele não acredita que alguém de valor possa, de fato, amá-lo.
 
 ***
 
