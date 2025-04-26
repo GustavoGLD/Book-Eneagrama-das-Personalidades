@@ -495,15 +495,15 @@ A trágica imagem reflete o senso de identidade que o social E4 construiu, sua p
 
 ***
 
-## Parte 3: Auto-destruição
+## Parte 3: Destrutivo para si mesmo e para os outros
 
 ### Medo dos outros
 
-> #### Ele vê o mundo como caótico, imprevisível e ameaçador, que pode machucá-lo a qualquer momento. Isso o faz se sentir indefeso, vulnerável e exposto,
+> #### _Ele vê o mundo como caótico, imprevisível e ameaçador, que pode machucá-lo a qualquer momento. Isso o faz se sentir indefeso, vulnerável e exposto,_
 
 como se não tivesse uma pele para protegê-lo. Incapaz de encontrar uma saída,
 
-> #### ele se retrai e se paralisa, temendo ser novamente ferido.
+> #### _ele se retrai e se paralisa, temendo ser novamente ferido._
 
 ***
 
@@ -578,6 +578,20 @@ A comida, rejeitada ou esquecida, se torna o reflexo perfeito de seu conflito in
 Sem plena consciência, age com crueldade sutil ao negar o valor ou amor do outro, destruindo laços com mensagens implícitas de desconfiança.
 
 > #### Oscila entre idealizar e menosprezar, deixando os outros inseguros e feridos. Esse ciclo, muitas vezes inconsciente, acaba ferindo e desgastando aqueles que tentam se conectar com ele.
+
+***
+
+### Punindo os outros indiretamente, com a própria autodestruição
+
+> #### _Por causa das feridas emocionais e das rejeições vividas, acumula uma raiva reprimida que se contorce por dentro,_&#x20;
+
+e isso pode levá-las facilmente à depressão, ao isolamento profundo e até ao desejo de desaparecer. Em certo sentido, o mundo recebe isso como uma punição indireta —&#x20;
+
+> #### _a depressão, o afastamento e a morte tornam-se formas silenciosas de dizer: “olha o que você causou”._
+
+É como se houvesse um movimento interno destrutivo, com esse pensamento:&#x20;
+
+> #### _“eu me destruo por não te destruir, mas também quero que você sofra com isso. E quando você vai embora, me machuco duas vezes, porque sei que fui responsável por isso e ainda te deixei com culpa por ser a causa da minha dor.”_
 
 ***
 
@@ -779,7 +793,7 @@ O E4 social teme ocupar espaço, como se expressar suas necessidades ou ser feli
 
 ***
 
-### Submisso **e a**nulador de si mesmo <a href="#c3a2" id="c3a2"></a>
+### Vazio interior <a href="#c3a2" id="c3a2"></a>
 
 O E4 social preserva inconscientemente seu **“vazio interior”**, mesmo que isso doa. Ele não sabe como lidar com esse vazio sozinho, um vazio que parece sufocar.
 
@@ -788,6 +802,18 @@ O E4 social preserva inconscientemente seu **“vazio interior”**, mesmo que i
 — esperando que talvez alguém venha “resgatá-lo”.
 
 [#fa2b](vergonha-inveja-social.md#fa2b "mention") | [#id-1ec8](vergonha-inveja-social.md#id-1ec8 "mention")
+
+***
+
+### Desconecta de si mesmo para se adaptar ao outro
+
+Com o tempo, o impulso de falar ou pedir algo vai sendo engolido. As palavras não saem, ficam presas no corpo e na mente, e isso causa frustração no começo — depois, ele simplesmente se perde. Ele se desconecta de si mesmo e acaba se adaptando demais ao outro.
+
+> #### _No fim, ele já nem sabe mais o que realmente quer ou precisa. Ele se desconecta de si mesmo e acaba se adaptando demais ao outro._&#x20;
+
+Mesmo adulto, precisa parar e se ouvir para entender o que sente e do que precisa de verdade.
+
+[#d347](vergonha-inveja-social.md#d347 "mention")
 
 ***
 
@@ -853,13 +879,19 @@ Ele continua preso a essa **expectativa infantil**, incapaz de tomar as rédeas 
 
 ### **Um amor impossível de corresponder** <a href="#id-4785" id="id-4785"></a>
 
-A ferida central do E4 social está na frustração pelo amor materno idealizado que nunca teve. Para preencher esse vazio, ele busca relações que prometam fusão total, onde possa confiar incondicionalmente, como uma criança nos braços da mãe.
+A ferida central do E4 social está na frustração pelo amor materno idealizado que nunca teve. Para preencher esse vazio, ele busca relações que prometam <mark style="color:green;">fusão total</mark>, onde possa confiar incondicionalmente, como uma criança nos braços da mãe.
 
-> #### Pequenas imposições de limites ou distâncias no relacionamento são vividos como se fossem rejeições profundas,
+> #### _Pequenas imposições de limites ou distâncias no relacionamento são vividos como se fossem rejeições profundas,_
 
 enquanto o desejo por essa conexão absoluta inevitavelmente termina em decepção.
 
-> #### Sem perceber, ele projeta no parceiro a expectativa de um amor que jamais poderá ser plenamente correspondido, perpetuando o ciclo de dependência emocional.
+> #### _Sem perceber, ele projeta no parceiro a expectativa de um amor que jamais poderá ser plenamente correspondido, perpetuando o ciclo de dependência emocional._
+
+***
+
+### Tristeza por nenhum relacionamento ser o suficiente...
+
+A intensidade da melancolia e o sentimento de impotência podem ser assustadores, pois essas pessoas sentem que nunca são realmente correspondidas em nenhum relacionamento. Quando se aproxima do outro com uma fome afetiva enorme, não há como alguém satisfazer esse vazio. Isso gera uma insatisfação constante, que muitas vezes se transforma em crítica ao outro — uma exigência tão grande que acaba destruindo qualquer chance real de amar.
 
 ***
 
