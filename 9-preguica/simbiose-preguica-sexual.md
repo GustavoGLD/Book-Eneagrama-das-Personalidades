@@ -66,3 +66,18 @@ Em grupos,&#x20;
 
 Como não consegue atender a cada pessoa individualmente, teme não ser suficientemente bom ou atencioso. Além disso, a relação coletiva não lhe dá a sensação de fusão que encontra no vínculo individual — tudo parece diluído e instável.
 
+#### Emoções aparentemente artificiais ou exageradas
+
+O E9 sexual aprende, de forma mental e racional, o que é “o certo” a fazer em cada situação.
+
+> Quando surge um impulso ou emoção genuína, ele a substitui por uma resposta aprendida, reagindo conforme o que acredita ser o certo.
+
+Em vez de sentir, reage de acordo com o que acredita ser adequado. Por isso, os outros às vezes percebem seu comportamento como artificial ou exagerado. É como se estivesse interpretando um papel, seguindo um roteiro interno, em vez de expressar o que realmente sente naquele momento.
+
+Exemplo em relatos:
+
+> _“Grande parte da minha infância e adolescência foi como viver no escuro. Meu pai tornou-se alcoólatra e minha mãe, sobrecarregada, descarregava sua raiva em mim e nos meus irmãos. Além disso, vivi uma situação de abuso que durou muito tempo._
+>
+> _Eu me sentia escura por dentro. Ainda assim, ia à escola e sorria o tempo todo. Às vezes não conseguia sustentar o sorriso, porque por dentro havia tristeza, raiva e vergonha — mas continuava sorrindo. O sorriso era uma fachada para esconder o quanto eu me sentia destruída._
+>
+> _Eu fazia tanto esforço para que ninguém percebesse o que havia dentro de mim que evitava olhar nos olhos das pessoas, com medo de que descobrissem. Nunca contei minhas tristezas, mesmo quando eram profundas, porque acreditava que não eram importantes — e, se não eram importantes para mim, como poderiam ser para os outros?”_
