@@ -26,6 +26,10 @@ O que inicialmente é busca por conexão transforma-se em adaptação constante.
 
 A pessoa só se permite sentir prazer quando isso também agrada a quem ama. Nesse movimento de entrega, acaba deixando seus próprios desejos em segundo plano, como se não houvesse espaço para si mesma.
 
+Desde a infância, o E9 sexual torna-se hipersensível ao estado emocional dos pais. Na vida adulta, transfere essa vigilância para a pessoa amada.&#x20;
+
+> Para evitar conflitos ou sofrimento no outro, reduz sua própria dor e silencia seus próprios desejos.
+
 #### O outro como uma referência
 
 > A perda da conexão com seu eu profundo é compensada olhando para fora.&#x20;
@@ -81,3 +85,17 @@ Exemplo em relatos:
 > _Eu me sentia escura por dentro. Ainda assim, ia à escola e sorria o tempo todo. Às vezes não conseguia sustentar o sorriso, porque por dentro havia tristeza, raiva e vergonha — mas continuava sorrindo. O sorriso era uma fachada para esconder o quanto eu me sentia destruída._
 >
 > _Eu fazia tanto esforço para que ninguém percebesse o que havia dentro de mim que evitava olhar nos olhos das pessoas, com medo de que descobrissem. Nunca contei minhas tristezas, mesmo quando eram profundas, porque acreditava que não eram importantes — e, se não eram importantes para mim, como poderiam ser para os outros?”_
+
+#### Fantasia como fuga da realidade
+
+Um elemento central desse processo de anestesia é a fantasia acompanhada do adiamento constante. Em vez de enfrentar a realidade, o E9 sexual refugia-se em imagens internas que tornam a vida mais suportável.
+
+Ao adiar decisões e confrontos, evita a dor que surgiria se tivesse de encarar os fatos. Mas, acima de tudo, evita reconhecer um limite difícil de aceitar: que nem tudo pode ser mudado.
+
+> Muitas vezes, mantém a crença de que, se agir da maneira certa, conseguirá controlar a situação ou transformar a realidade. Essa esperança de controle sustenta a fantasia e impede o contato pleno com o presente.
+
+#### Conivente com a própria infelicidade
+
+No esforço de manter tudo estável e sem conflitos, o Nove sexual muitas vezes não percebe que não está feliz. Prefere aceitar o rumo que a vida toma a enfrentar possíveis dificuldades.\
+Acima de tudo, acredita que não deve perturbar a serenidade da família ou da pessoa amada — nem mesmo ao desejar algo para si.
+
