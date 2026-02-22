@@ -1,4 +1,5 @@
 ---
+description: Baseado nos livros de Claudio Naranjo
 icon: venus-mars
 ---
 
@@ -36,4 +37,32 @@ O outro torna-se a referência, a bússola para detectar necessidades ou pensame
 > Sempre que um impulso ou emoção começa a aparecer, ele a interrompe quase automaticamente.
 
 Com o tempo, esse hábito gera uma espécie de anestesia emocional. Assim, o próprio ato de começar a sentir já dispara o bloqueio do sentir.
+
+#### Confuso sobre o que sente
+
+A repetida negação dos próprios impulsos cria confusão e insegurança sobre o que ele sente. Como não consegue distinguir seus próprios impulsos, passa a duvidar de si mesmo e sente-se inadequado.
+
+> Somente quando acumula frustração suficiente — após negar repetidamente seus desejos — é que chega ao limite e finalmente dá espaço à própria necessidade, podendo tornar-se firme ou até impositivo para satisfazê-la.
+
+#### Não se permite ter vontades
+
+Na infância, ele aprende que expressar seus desejos não adianta — ou pode trazer consequências negativas. Então passa a ignorar seus próprios impulsos.
+
+> Na vida adulta, sempre que sente vontade de algo, vem junto um desconforto, como se desejar fosse algo errado ou perigoso
+
+Exemplos em relatos:
+
+> “Quando recém-nascido, disseram-me, eu era muito bonzinho. Comia, dormia e quase não chorava — nem de fome. Esperava sem incomodar. Às vezes minha mãe me dava a mamadeira sem me acordar, e eu comia dormindo. Parece-me que, desde que nasci, aprendi o que fiz a vida inteira: ser bom, não incomodar, não pedir nada — nem mesmo comida — e contentar-me com o mínimo.”\
+> &#xNAN;_(Dania)_
+
+> “Sou a sétima de dez filhos, numa família de refugiados em extrema pobreza. Desde cedo entendi que não devia pedir nada: não havia recursos, e pedir faria meus pais sofrerem ainda mais. Aprendi a não fazer birra, a não ficar com raiva, a não pedir ajuda — porque ninguém iria me ouvir. Guardei minhas tristezas para mim e também aprendi a não me apegar demais às alegrias, pois elas não durariam.”\
+> &#xNAN;_(Lupita)_
+
+#### Dificuldade na interação em grupos
+
+Em grupos,&#x20;
+
+> ele sente que precisa captar o clima emocional de todos ao mesmo tempo, o que se torna exaustivo.&#x20;
+
+Como não consegue atender a cada pessoa individualmente, teme não ser suficientemente bom ou atencioso. Além disso, a relação coletiva não lhe dá a sensação de fusão que encontra no vínculo individual — tudo parece diluído e instável.
 
